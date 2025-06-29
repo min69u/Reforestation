@@ -25,7 +25,7 @@ jobs:
         run: |
           ${{ secrets.cr }}
           git config --local user.email "innerbeautyklla@gmail.com"
-          git config --local user.name "min69"
+          git config --local user.name "min69u"
           git config --global --add safe.directory /github/workspace
           git add -A
           git commit -s -am "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
