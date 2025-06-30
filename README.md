@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Where does batman go to the bathroom? The batroom.
