@@ -1,1 +1,1 @@
-## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
+## How come the stadium got hot after the game? Because all of the fans left.
