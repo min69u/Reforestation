@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
