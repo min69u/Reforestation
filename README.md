@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why didn’t the skeleton cross the road? Because he had no guts.
