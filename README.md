@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
