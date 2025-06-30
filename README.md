@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
