@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## How does a dyslexic poet write? Inverse.
