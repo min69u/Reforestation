@@ -24,7 +24,7 @@ jobs:
       - name: Commit changes
         run: |
           ${{ secrets.cr }}
-          git config --local user.email "innerbeautyklla@gmail.com"
+          git config --local user.email "innerbeautykylla@gmail.com"
           git config --local user.name "min69u"
           git config --global --add safe.directory /github/workspace
           git add -A
