@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
