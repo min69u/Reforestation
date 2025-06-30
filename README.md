@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Why did the clown have neck pain? - Because he slept funny
