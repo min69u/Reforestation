@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## I’ll tell you something about German sausages, they’re the wurst
