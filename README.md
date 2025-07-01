@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## What did the ocean say to the shore? Nothing, it just waved.
