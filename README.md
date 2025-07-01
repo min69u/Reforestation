@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## A Skeleton walked into a bar he said I need a beer and a mop
