@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
