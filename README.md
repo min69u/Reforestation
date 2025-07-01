@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
