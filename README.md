@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## I don't trust sushi, there's something fishy about it.
