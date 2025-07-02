@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## The best time on a clock is 6:30--hands down.
