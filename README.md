@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
