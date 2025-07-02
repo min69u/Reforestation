@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## How do hens stay fit? They always egg-cercise!
