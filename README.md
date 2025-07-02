@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
