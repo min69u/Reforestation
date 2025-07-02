@@ -1,1 +1,3 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
