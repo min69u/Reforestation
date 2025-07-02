@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
