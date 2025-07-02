@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I decided to sell my Hoover… well it was just collecting dust.
