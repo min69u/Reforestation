@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
