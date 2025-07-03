@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
