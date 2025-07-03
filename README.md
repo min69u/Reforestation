@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
