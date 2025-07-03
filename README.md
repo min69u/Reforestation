@@ -1,1 +1,1 @@
-## *Reversing the car* "Ah, this takes me back"
+## Why are skeletons so calm? Because nothing gets under their skin.
