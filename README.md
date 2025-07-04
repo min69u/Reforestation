@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
