@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## What do you call a fish wearing a bowtie? Sofishticated.
