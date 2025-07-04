@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## How do you organize a space party? You planet.
