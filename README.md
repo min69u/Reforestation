@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## What do you call an alligator in a vest? An in-vest-igator!
