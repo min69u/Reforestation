@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What's brown and sticky? A stick.
