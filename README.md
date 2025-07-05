@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What do you get when you cross a pig and a pineapple? A porky pine
