@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
