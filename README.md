@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
