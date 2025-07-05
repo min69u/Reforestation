@@ -1,1 +1,2 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
