@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
