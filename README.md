@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
