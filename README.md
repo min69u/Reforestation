@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
