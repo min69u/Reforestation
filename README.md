@@ -1,1 +1,1 @@
-## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
