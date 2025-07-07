@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
