@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## What's the best thing about elevator jokes? They work on so many levels.
