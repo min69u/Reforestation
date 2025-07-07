@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why did the sentence fail the driving test? It never came to a full stop.
