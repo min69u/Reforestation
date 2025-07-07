@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
