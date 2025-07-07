@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
