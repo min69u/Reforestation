@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
