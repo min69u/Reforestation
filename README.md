@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
