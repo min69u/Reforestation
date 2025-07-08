@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
