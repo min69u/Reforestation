@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Why is it so windy inside an arena? All those fans.
