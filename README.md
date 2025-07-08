@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## When does a joke become a dad joke? When it becomes apparent.
