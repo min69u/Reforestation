@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
