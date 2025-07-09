@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
