@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## How do locomotives know where they're going? Lots of training
