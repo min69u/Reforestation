@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
