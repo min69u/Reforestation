@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## What do you call cheese by itself? Provolone.
