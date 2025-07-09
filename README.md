@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
