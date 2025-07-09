@@ -1,1 +1,1 @@
-## What do you call cheese by itself? Provolone.
+## What's a ninja's favorite type of shoes? Sneakers!
