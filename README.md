@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
