@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Atheism is a non-prophet organisation.
