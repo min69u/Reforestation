@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
