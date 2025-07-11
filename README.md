@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
