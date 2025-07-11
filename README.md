@@ -1,1 +1,2 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
