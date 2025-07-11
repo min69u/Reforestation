@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## Animal Fact #25: Most bobcats are not named bob.
