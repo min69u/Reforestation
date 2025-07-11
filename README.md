@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
