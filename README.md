@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why did the house go to the doctor? It was having window panes.
