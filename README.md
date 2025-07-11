@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
