@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## I've got a joke about vegetables for you... but it's a bit corny.
