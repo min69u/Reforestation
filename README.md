@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Why didn’t the skeleton cross the road? Because he had no guts.
