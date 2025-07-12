@@ -1,1 +1,3 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
