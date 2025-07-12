@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
