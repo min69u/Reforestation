@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## I considered building the patio by myself. But I didn't have the stones.
