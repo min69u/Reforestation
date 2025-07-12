@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
