@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
