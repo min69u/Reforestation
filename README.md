@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
