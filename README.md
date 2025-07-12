@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Did you know that protons have mass? I didn't even know they were catholic.
