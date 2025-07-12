@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
