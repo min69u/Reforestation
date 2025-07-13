@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
