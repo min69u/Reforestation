@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Where do hamburgers go to dance? The meat-ball.
