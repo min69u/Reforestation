@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
