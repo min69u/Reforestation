@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
