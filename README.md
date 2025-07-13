@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
