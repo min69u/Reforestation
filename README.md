@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
