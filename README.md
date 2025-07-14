@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Why did the melons plan a big wedding? Because they cantaloupe!
