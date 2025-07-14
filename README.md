@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
