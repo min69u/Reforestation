@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## I had a dream that I was a muffler last night. I woke up exhausted!
