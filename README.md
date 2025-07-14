@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
