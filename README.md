@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
