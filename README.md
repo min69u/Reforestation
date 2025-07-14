@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why are mummys scared of vacation? They're afraid to unwind.
