@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
