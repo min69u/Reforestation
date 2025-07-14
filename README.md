@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
