@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
