@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
