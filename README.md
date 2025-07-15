@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
