@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
