@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
