@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## The urge to sing the Lion King song is just a whim away.
