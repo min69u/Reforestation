@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## I asked a frenchman if he played video games. He said "Wii"
