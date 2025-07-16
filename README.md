@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## What do you call two guys hanging out by your window? Kurt & Rod.
