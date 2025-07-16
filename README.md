@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
