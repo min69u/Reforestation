@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I burned 2000 calories today, I left my food in the oven for too long.
