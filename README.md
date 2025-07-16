@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why did the house go to the doctor? It was having window panes.
