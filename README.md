@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
