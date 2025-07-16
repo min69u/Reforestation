@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## How does a dyslexic poet write? Inverse.
