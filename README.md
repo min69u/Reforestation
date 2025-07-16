@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
