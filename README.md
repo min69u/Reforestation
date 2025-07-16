@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What's black and white and read all over? The newspaper.
