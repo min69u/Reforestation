@@ -1,1 +1,3 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
