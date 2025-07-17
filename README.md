@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
