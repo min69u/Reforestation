@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## How do you teach a kid to climb stairs? There is a step by step guide.
