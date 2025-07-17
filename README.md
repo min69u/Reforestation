@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I was thinking about moving to Moscow but there is no point Russian into things.
