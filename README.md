@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
