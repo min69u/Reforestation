@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## Why do cows wear bells? Because their horns don't work.
