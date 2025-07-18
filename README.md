@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I don't trust sushi, there's something fishy about it.
