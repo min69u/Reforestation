@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
