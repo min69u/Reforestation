@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
