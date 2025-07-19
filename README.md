@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
