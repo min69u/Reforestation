@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What time did the man go to the dentist? Tooth hurt-y.
