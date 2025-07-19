@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What does an angry pepper do? It gets jalapeño face.
