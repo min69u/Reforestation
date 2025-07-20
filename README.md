@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
