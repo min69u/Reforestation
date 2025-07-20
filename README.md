@@ -1,1 +1,2 @@
-## When is a door not a door? When it's ajar.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
