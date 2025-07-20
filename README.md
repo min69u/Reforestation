@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## When is a door not a door? When it's ajar.
