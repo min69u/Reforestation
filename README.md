@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I knew a guy who collected candy canes, they were all in mint condition
