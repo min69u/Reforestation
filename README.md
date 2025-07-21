@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
