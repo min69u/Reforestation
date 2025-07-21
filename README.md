@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why do fish live in salt water? Because pepper makes them sneeze!
