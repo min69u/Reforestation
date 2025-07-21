@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
