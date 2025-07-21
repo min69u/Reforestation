@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## What time did the man go to the dentist? Tooth hurt-y.
