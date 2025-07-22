@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## If I could name myself after any Egyptian god, I'd be Set.
