@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
