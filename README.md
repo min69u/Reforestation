@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## How come a man driving a train got struck by lightning? He was a good conductor.
