@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
