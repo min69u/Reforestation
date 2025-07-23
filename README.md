@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Why don't sharks eat clowns?  Because they taste funny.
