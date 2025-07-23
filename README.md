@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
