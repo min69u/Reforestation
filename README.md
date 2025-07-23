@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## An apple a day keeps the bullies away. If you throw it hard enough.
