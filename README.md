@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
