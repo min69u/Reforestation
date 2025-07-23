@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
