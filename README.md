@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why did the coffee file a police report? It got mugged.
