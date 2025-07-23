@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
