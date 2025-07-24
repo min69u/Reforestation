@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
