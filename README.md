@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why was the strawberry sad? Its parents were in a jam.
