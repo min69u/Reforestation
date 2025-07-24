@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why was it called the dark ages? Because of all the knights. 
