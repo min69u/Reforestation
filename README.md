@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
