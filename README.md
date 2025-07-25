@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
