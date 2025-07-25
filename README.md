@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
