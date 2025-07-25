@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What do you call two guys hanging out by your window? Kurt & Rod.
