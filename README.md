@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What kind of magic do cows believe in? MOODOO.
