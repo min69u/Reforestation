@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## When is a door not a door? When it's ajar.
