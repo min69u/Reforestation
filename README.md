@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## The shovel was a ground-breaking invention.
