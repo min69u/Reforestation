@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What do birds give out on Halloween? Tweets.
