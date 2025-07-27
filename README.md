@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
