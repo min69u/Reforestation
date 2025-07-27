@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
