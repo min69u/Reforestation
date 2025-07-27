@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## How are false teeth like stars? They come out at night!
