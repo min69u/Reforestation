@@ -1,1 +1,1 @@
-## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
