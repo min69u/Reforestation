@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
