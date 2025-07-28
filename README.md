@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What did the calculator say to the student? You can count on me.
