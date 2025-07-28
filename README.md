@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## You can't run through a camp site. You can only ran, because it's past tents.
