@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
