@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## New atoms frequently lose electrons when they fail to keep an ion them.
