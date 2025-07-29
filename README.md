@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
