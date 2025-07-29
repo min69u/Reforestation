@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
