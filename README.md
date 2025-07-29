@@ -1,7 +1,1 @@
-## Wife: Honey I’m pregnant.
-## 
-## Me: Well…. what do we do now?
-## 
-## Wife: Well, I guess we should go to a baby doctor.
-## 
-## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+## What is this movie about? It is about 2 hours long.
