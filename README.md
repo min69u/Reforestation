@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why was the picture sent to prison? It was framed.
