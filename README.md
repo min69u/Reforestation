@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## What don't watermelons get married? Because they cantaloupe.
