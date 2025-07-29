@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## What did the big flower say to the littler flower? Hi, bud!
