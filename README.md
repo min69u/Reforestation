@@ -1,1 +1,3 @@
-## To be Frank, I'd have to change my name.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
