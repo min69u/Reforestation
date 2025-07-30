@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
