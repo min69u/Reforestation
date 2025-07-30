@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## What does a clock do when it's hungry? It goes back four seconds!
