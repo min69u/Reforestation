@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
