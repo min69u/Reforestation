@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## What did one nut say as he chased another nut?  I'm a cashew!
