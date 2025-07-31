@@ -1,1 +1,3 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
