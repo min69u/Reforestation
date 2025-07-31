@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## How come the stadium got hot after the game? Because all of the fans left.
