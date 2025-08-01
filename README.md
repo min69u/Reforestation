@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## I'd like to start a diet, but I've got too much on my plate right now.
