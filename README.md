@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
