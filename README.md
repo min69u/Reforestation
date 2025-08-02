@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
