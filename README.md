@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
