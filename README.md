@@ -1,1 +1,2 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
