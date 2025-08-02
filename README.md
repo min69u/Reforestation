@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why do pirates not know the alphabet? They always get stuck at "C".
