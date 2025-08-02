@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
