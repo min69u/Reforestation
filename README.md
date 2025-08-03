@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## What does an angry pepper do? It gets jalapeño face.
