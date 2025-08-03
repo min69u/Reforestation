@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## "I'll call you later." Don't call me later, call me Dad.
