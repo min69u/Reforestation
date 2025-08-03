@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## Why was the strawberry sad? Its parents were in a jam.
