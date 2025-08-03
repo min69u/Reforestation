@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
