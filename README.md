@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Why did the clown have neck pain? - Because he slept funny
