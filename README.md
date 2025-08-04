@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
