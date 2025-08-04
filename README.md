@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## What is a vampire's favorite fruit? A blood orange.
