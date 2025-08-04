@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## How do you teach a kid to climb stairs? There is a step by step guide.
