@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why do birds fly south for the winter? Because it's too far to walk.
