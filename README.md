@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What time did the man go to the dentist? Tooth hurt-y.
