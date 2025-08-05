@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
