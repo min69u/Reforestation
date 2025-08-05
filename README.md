@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## I broke my finger at work today, on the other hand I'm completely fine.
