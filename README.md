@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## I asked a frenchman if he played video games. He said "Wii"
