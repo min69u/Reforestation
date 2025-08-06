@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Why did the knife dress up in a suit? Because it wanted to look sharp
