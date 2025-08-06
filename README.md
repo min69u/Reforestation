@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
