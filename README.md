@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
