@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
