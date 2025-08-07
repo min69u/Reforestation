@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
