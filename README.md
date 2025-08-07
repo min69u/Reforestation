@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
