@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
