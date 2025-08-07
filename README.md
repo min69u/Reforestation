@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I won an argument with a weather forecaster once. His logic was cloudy...
