@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Why can't a bicycle stand on its own? It's two-tired.
