@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
