@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
