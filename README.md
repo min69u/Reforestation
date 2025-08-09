@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## A termite walks into a bar and asks “Is the bar tender here?”
