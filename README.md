@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## A steak pun is a rare medium well done.
