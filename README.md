@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
