@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
