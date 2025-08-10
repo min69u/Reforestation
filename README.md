@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What did Yoda say when he saw himself in 4K? "HDMI"
