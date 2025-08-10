@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
