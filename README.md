@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Why did the chicken get a penalty? For fowl play.
