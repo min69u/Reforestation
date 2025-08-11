@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
