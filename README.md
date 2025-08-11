@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
