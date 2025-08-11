@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
