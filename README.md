@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Where did you learn to make ice cream? Sunday school.
