@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What's the best thing about elevator jokes? They work on so many levels.
