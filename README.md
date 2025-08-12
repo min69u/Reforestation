@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
