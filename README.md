@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## How come the stadium got hot after the game? Because all of the fans left.
