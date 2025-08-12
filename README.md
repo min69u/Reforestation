@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
