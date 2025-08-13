@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
