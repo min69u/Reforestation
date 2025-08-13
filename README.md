@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
