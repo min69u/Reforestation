@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
