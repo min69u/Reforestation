@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Don't tell secrets in corn fields. Too many ears around.
