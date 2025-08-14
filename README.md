@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I just broke my guitar. It's okay, I won't fret
