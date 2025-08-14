@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
