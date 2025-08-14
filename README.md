@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
