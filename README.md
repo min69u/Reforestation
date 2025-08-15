@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## What do you do when your bunny gets wet? You get your hare dryer.
