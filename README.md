@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## What was a more important invention than the first telephone? The second one.
