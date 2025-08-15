@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Mountains aren't just funny, they are hill areas
