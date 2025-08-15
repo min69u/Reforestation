@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What do you do when your bunny gets wet? You get your hare dryer.
