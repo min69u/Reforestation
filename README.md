@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What does an angry pepper do? It gets jalapeño face.
