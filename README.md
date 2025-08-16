@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
