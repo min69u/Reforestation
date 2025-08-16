@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
