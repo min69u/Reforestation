@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## An apple a day keeps the bullies away. If you throw it hard enough.
