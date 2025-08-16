@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
