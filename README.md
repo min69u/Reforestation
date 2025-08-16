@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
