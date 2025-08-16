@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## How can you tell a vampire has a cold? They start coffin.
