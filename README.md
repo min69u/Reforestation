@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
