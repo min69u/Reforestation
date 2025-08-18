@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
