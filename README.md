@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Some people eat light bulbs. They say it's a nice light snack.
