@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Two guys walked into a bar, the third one ducked.
