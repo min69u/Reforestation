@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## How do robots eat guacamole? With computer chips.
