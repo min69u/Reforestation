@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
