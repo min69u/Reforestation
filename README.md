@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
