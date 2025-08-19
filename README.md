@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
