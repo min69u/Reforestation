@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## I tried to write a chemistry joke, but could never get a reaction.
