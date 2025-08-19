@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
