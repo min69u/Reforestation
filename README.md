@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
