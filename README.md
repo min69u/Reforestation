@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## Did you hear about the runner who was criticized? He just took it in stride
