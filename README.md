@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Have you ever seen fruit preserves being made? It's jarring.
