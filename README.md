@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
