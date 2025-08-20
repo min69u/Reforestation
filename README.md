@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Why did the coffee file a police report? It got mugged.
