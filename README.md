@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
