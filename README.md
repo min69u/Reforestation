@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## There's not really any training for garbagemen. They just pick things up as they go.
