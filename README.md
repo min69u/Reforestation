@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
