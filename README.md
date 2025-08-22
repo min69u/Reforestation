@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What do you call a duck that gets all A's? A wise quacker.
