@@ -1,1 +1,2 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
