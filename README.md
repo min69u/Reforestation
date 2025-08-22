@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## When does a joke become a dad joke? When it becomes apparent.
