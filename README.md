@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## I wanted to be a tailor but I didn't suit the job
