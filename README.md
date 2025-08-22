@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
