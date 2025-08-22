@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
