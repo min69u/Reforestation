@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## Why did the melons plan a big wedding? Because they cantaloupe!
