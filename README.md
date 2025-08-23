@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
