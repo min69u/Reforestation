@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## What does an angry pepper do? It gets jalapeño face.
