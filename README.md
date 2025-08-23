@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Who did the wizard marry? His ghoul-friend
