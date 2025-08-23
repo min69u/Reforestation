@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
