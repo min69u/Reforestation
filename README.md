@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
