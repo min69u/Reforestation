@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
