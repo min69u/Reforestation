@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Where do young cows eat lunch? In the calf-ateria.
