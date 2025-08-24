@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
