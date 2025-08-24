@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
