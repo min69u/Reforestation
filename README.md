@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Where do sheep go to get their hair cut? The baa-baa shop.
