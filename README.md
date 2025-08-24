@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
