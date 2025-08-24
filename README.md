@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
