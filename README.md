@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
