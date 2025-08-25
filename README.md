@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
