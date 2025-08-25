@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
