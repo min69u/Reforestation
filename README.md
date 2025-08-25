@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
