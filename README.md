@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
