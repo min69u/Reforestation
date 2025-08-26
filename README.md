@@ -1,1 +1,2 @@
-## Why do bees hum? Because they don't know the words.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
