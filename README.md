@@ -1,1 +1,1 @@
-## Where do owls go to buy their baby clothes? The owlet malls.
+## What did Yoda say when he saw himself in 4K? "HDMI"
