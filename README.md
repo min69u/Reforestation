@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Why do birds fly south for the winter? Because it's too far to walk.
