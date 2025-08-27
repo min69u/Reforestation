@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## How much does a hipster weigh? An instagram.
