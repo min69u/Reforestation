@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
