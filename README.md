@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
