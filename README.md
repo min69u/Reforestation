@@ -1,1 +1,2 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
