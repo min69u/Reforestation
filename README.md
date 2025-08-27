@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
