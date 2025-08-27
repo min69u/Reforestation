@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why was the strawberry sad? Its parents were in a jam.
