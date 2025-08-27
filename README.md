@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## Why do cows wear bells? Because their horns don't work.
