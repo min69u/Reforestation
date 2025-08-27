@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Whoever invented the knock-knock joke should get a no bell prize.
