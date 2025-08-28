@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
