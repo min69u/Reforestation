@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
