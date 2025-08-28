@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
