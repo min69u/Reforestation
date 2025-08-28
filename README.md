@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
