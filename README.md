@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## Why did the m&m go to school? Because it wanted to be a Smartie!
