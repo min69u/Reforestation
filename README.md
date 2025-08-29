@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
