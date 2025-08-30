@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
