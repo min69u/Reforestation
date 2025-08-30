@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
