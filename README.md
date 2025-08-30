@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## I'm glad I know sign language, it's pretty handy.
