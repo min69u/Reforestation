@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Want to hear a joke about construction? Nah, I'm still working on it.
