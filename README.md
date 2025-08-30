@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why do pirates not know the alphabet? They always get stuck at "C".
