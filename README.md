@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What do you call corn that joins the army? Kernel.
