@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
