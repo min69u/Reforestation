@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## How many South Americans does it take to change a lightbulb? A Brazilian
