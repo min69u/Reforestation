@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
