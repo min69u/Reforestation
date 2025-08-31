@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
