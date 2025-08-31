@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
