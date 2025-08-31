@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Did you hear about the Mexican train killer? He had loco motives
