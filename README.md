@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## What do you do when your bunny gets wet? You get your hare dryer.
