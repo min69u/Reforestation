@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## You know that cemetery up the road? People are dying to get in there.
