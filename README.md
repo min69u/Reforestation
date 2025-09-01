@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Sore throats are a pain in the neck!
