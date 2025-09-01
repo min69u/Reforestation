@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Why did the feline fail the lie detector test? Because he be lion.
