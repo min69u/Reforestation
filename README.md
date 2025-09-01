@@ -1,1 +1,3 @@
-## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
