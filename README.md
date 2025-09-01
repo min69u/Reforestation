@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
