@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## How do hens stay fit? They always egg-cercise!
