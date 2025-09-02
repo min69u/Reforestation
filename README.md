@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
