@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
