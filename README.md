@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Why do cows not have toes? They lactose!
