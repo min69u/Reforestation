@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Me and my mates are in a band called Duvet. We're a cover band.
