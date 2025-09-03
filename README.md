@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## If at first you don't succeed, sky diving is not for you!
