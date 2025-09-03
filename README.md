@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## I had a dream that I was a muffler last night. I woke up exhausted!
