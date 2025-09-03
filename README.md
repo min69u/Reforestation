@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Where does batman go to the bathroom? The batroom.
