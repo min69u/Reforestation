@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
