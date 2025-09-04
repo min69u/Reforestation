@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
