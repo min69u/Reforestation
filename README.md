@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What did the ocean say to the shore? Nothing, it just waved.
