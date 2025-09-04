@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Waking up this morning was an eye-opening experience.
