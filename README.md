@@ -1,1 +1,1 @@
-## What do vegetarian zombies eat? Grrrrrainnnnnssss.
+## What do you call a sheep with no legs? A cloud.
