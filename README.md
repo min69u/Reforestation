@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why don't eggs tell jokes? They'd crack each other up
