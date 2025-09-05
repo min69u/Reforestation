@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## What is the hardest part about sky diving? The ground.
