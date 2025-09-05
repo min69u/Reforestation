@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
