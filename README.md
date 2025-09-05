@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
