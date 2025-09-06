@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
