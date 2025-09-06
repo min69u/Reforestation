@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Did you hear about the bread factory burning down? They say the business is toast.
