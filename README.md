@@ -1,1 +1,2 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## What do you do when you see a space man?
+## Park your car, man.
