@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
