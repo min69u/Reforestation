@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
