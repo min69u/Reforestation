@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
