@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
