@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
