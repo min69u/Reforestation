@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Why are ghosts bad liars? Because you can see right through them!
