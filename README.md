@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
