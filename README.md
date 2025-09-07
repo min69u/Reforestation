@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What’s brown and sounds like a bell? Dung!
