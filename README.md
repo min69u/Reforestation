@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
