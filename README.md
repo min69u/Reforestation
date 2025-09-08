@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
