@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## You know that cemetery up the road? People are dying to get in there.
