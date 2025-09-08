@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
