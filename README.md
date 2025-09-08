@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
