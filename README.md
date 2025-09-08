@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
