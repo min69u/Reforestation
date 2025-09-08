@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
