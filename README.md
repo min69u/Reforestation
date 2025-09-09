@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
