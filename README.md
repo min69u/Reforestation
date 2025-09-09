@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
