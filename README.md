@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I used to think I was indecisive, but now I'm not sure.
