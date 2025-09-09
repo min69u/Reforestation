@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
