@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## A magician was driving down the street and then he turned into a driveway.
