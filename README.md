@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
