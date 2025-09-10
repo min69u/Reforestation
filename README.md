@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Toasters were the first form of pop-up notifications.
