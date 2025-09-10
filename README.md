@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
