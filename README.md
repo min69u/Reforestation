@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
