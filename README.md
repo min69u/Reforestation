@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
