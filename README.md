@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
