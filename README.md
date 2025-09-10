@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
