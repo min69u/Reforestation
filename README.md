@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
