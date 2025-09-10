@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
