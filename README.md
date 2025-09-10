@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
