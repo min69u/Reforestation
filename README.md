@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What's black and white and read all over? The newspaper.
