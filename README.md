@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
