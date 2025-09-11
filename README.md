@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
