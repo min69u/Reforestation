@@ -1,1 +1,1 @@
-## Camping is intense.
+## What do you call a fat psychic? A four-chin teller.
