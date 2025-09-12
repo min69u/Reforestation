@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What kind of bagel can fly? A plain bagel.
