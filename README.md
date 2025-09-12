@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Where does Napoleon keep his armies? In his sleevies.
