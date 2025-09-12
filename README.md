@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What kind of magic do cows believe in? MOODOO.
