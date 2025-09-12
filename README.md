@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Why was the shirt happy to hang around the tank top? Because it was armless
