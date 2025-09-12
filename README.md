@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What's red and bad for your teeth? A Brick.
