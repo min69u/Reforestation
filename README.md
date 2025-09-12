@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## “My Dog has no nose.” “How does he smell?” “Awful”
