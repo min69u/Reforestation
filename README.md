@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## What do you call a group of killer whales playing instruments? An Orca-stra.
