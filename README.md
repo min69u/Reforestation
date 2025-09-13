@@ -1,1 +1,2 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What do you do when you see a space man?
+## Park your car, man.
