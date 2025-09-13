@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
