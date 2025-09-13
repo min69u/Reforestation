@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
