@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What do you call corn that joins the army? Kernel.
