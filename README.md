@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
