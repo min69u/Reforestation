@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## New atoms frequently lose electrons when they fail to keep an ion them.
