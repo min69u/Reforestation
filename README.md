@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## What's red and bad for your teeth? A Brick.
