@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## You know that cemetery up the road? People are dying to get in there.
