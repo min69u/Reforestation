@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
