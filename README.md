@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
