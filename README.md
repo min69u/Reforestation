@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
