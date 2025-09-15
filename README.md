@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Never take advice from electrons. They are always negative.
