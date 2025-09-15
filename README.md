@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
