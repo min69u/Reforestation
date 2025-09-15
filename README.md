@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
