@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I broke my finger at work today, on the other hand I'm completely fine.
