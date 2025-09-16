@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
