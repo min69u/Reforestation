@@ -1,1 +1,3 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
