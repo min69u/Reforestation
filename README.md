@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
