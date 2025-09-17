@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What did the calculator say to the student? You can count on me.
