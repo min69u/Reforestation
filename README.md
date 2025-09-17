@@ -1,1 +1,1 @@
-## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
