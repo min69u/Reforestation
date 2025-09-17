@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
