@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
