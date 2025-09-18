@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
