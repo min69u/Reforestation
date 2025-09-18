@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What don't watermelons get married? Because they cantaloupe.
