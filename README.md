@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## The urge to sing the Lion King song is just a whim away.
