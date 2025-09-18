@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
