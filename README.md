@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
