@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I’ll tell you something about German sausages, they’re the wurst
