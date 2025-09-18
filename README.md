@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
