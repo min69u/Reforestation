@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
