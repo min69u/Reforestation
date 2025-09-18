@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What do computers and air conditioners have in common? They both become useless when you open windows.
