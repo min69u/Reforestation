@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
