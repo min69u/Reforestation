@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## My wife said I was immature. So I told her to get out of my fort.
