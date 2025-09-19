@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
