@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
