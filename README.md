@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What do you do when your bunny gets wet? You get your hare dryer.
