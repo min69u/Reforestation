@@ -1,1 +1,2 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
