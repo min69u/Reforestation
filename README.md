@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
