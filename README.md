@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
