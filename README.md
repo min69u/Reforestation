@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
