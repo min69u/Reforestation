@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
