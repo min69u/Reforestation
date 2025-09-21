@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
