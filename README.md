@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
