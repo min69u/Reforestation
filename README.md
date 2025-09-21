@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
