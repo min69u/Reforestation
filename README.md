@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
