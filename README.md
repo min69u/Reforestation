@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
