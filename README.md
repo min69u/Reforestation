@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Why do choirs keep buckets handy? So they can carry their tune
