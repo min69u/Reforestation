@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## "I'm sorry." "Hi sorry, I'm dad"
