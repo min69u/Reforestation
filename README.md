@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
