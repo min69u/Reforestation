@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
