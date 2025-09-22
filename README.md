@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why was ten scared of seven? Because seven ate nine.
