@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I decided to sell my Hoover… well it was just collecting dust.
