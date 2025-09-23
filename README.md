@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
