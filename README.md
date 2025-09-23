@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
