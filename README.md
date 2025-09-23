@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## What do you call a cow with no legs? Ground beef.
