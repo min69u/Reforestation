@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## Why can't eggs have love? They will break up too soon.
