@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## When is a door not a door? When it's ajar.
