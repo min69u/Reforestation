@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why did the house go to the doctor? It was having window panes.
