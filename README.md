@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## How come the stadium got hot after the game? Because all of the fans left.
