@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
