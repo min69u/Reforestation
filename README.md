@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## A magician was driving down the street and then he turned into a driveway.
