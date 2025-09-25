@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## What did the piece of bread say to the knife? Butter me up.
