@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
