@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why was the broom late for the meeting? He overswept.
