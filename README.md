@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
