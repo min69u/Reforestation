@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Where did Captain Hook get his hook? From a second hand store.
