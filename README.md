@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## Why did the kid throw the clock out the window? He wanted to see time fly!
