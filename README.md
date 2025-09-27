@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
