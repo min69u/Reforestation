@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
