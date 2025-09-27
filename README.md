@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
