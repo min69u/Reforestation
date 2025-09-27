@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
