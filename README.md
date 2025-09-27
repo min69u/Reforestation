@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## What creature is smarter than a talking parrot? A spelling bee.
