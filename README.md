@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I’m on a whiskey diet. I’ve lost three days already.
