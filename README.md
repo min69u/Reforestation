@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
