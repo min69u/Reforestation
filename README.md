@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
