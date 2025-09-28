@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
