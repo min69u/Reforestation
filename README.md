@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
