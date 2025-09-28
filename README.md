@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Don't trust atoms. They make up everything.
