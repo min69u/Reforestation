@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
