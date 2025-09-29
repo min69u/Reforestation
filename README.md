@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
