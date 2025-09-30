@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## A Skeleton walked into a bar he said I need a beer and a mop
