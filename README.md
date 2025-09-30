@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What do you call a group of disorganized cats? A cat-tastrophe.
