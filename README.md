@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Camping is intense.
