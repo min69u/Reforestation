@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## To the person who stole my anti-depressant pills: I hope you're happy now.
