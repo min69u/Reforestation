@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## There’s a new type of broom out, it’s sweeping the nation.
