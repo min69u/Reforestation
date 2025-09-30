@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
