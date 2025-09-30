@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
