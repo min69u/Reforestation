@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I used to be addicted to the hokey pokey, but I turned myself around.
