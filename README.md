@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
