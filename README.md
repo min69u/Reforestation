@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
