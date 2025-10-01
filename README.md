@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
