@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
