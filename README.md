@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
