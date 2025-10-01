@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## What do you call someone with no nose? Nobody knows.
