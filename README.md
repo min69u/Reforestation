@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
