@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What creature is smarter than a talking parrot? A spelling bee.
