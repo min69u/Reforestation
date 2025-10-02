@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why did the belt go to prison? He held up a pair of pants!
