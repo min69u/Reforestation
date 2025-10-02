@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Do you know where you can get chicken broth in bulk? The stock market.
