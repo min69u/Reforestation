@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why don't eggs tell jokes? They'd crack each other up
