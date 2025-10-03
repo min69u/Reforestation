@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What’s E.T. short for? He’s only got little legs.
