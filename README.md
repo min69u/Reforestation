@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
