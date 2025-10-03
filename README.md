@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
