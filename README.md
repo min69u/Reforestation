@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## How come the stadium got hot after the game? Because all of the fans left.
