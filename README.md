@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Why did the kid cross the playground? To get to the other slide.
