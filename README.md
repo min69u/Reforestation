@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## When does a joke become a dad joke? When it becomes apparent.
