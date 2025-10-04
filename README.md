@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What do you call a troublesome Canadian high schooler? A poutine.
