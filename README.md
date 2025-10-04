@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Where did you learn to make ice cream? Sunday school.
