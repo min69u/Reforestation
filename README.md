@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I thought about going on an all-almond diet. But that's just nuts.
