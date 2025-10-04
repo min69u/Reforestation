@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
