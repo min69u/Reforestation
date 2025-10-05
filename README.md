@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## What's a ninja's favorite type of shoes? Sneakers!
