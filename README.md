@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## I just wrote a book on reverse psychology. Do not read it!
