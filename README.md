@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
