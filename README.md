@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
