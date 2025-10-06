@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Breaking news! Energizer Bunny arrested – charged with battery.
