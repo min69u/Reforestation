@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
