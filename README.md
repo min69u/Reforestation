@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
