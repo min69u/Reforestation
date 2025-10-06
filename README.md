@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why are skeletons so calm? Because nothing gets under their skin.
