@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
