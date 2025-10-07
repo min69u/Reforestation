@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
