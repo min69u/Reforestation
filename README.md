@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
