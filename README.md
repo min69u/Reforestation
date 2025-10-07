@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
