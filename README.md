@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why are mummys scared of vacation? They're afraid to unwind.
