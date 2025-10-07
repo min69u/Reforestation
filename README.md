@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## How do you get two whales in a car? Start in England and drive West.
