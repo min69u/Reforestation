@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
