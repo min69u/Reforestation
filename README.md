@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
