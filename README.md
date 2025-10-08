@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## What do you call an Argentinian with a rubber toe? Roberto
