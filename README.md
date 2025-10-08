@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
