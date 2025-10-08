@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
