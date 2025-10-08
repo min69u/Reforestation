@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
