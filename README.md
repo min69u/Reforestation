@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Me and my mates are in a band called Duvet. We're a cover band.
