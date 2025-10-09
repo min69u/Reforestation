@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why did the melons plan a big wedding? Because they cantaloupe!
