@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
