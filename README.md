@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What's the worst thing about ancient history class? The teachers tend to Babylon.
