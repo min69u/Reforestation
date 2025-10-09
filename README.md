@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
