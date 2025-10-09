@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Where do rabbits go after they get married? On a bunny-moon.
