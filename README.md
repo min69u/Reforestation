@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
