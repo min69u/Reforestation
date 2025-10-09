@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why do bees have sticky hair? Because they use honey combs!
