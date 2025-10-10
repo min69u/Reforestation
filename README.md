@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
