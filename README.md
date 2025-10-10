@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Dad, can you put my shoes on? I don't think they'll fit me.
