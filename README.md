@@ -1,1 +1,2 @@
-## How do you get two whales in a car? Start in England and drive West.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
