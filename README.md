@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## What do you call an alligator in a vest? An in-vest-igator!
