@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
