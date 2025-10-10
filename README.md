@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why was ten scared of seven? Because seven ate nine.
