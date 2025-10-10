@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
