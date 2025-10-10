@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
