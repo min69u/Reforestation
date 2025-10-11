@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why did the tomato blush? Because it saw the salad dressing.
