@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
