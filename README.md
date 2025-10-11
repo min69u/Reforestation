@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
