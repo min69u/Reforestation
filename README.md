@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## What do you call two guys hanging out by your window? Kurt & Rod.
