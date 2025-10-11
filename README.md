@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
