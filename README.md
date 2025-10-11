@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## I was going to get a brain transplant, but I changed my mind
