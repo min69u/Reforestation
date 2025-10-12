@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
