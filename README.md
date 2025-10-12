@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
