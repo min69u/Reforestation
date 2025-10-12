@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## Why did the tomato blush? Because it saw the salad dressing.
