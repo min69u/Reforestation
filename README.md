@@ -1,1 +1,2 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## What is red and smells like blue paint?
+## Red paint!
