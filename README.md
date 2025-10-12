@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
