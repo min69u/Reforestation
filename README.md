@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Why did the banana go to the doctor? He was not "peeling" well.
