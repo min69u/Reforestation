@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
