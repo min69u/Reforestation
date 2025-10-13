@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## People who don't eat gluten are really going against the grain.
