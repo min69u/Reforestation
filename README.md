@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What kind of bagel can fly? A plain bagel.
