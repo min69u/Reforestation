@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
