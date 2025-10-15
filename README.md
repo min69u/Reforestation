@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## I’ll tell you something about German sausages, they’re the wurst
