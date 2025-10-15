@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What do you call a cow with two legs? Lean beef.
