@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
