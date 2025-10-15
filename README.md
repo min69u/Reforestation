@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## What happens to a frog's car when it breaks down? It gets toad.
