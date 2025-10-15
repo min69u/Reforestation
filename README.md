@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Mountains aren't just funny, they are hill areas
