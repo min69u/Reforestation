@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
