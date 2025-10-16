@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why did the clown have neck pain? - Because he slept funny
