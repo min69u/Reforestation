@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What don't watermelons get married? Because they cantaloupe.
