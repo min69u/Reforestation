@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## My boss told me to have a good day... so I went home.
