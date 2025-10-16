@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What did the mountain climber name his son? Cliff.
