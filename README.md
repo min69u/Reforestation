@@ -1,1 +1,2 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
