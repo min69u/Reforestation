@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
