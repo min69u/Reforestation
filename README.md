@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why did the sentence fail the driving test? It never came to a full stop.
