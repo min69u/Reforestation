@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Where do hamburgers go to dance? The meat-ball.
