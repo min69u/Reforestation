@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## What kind of pants do ghosts wear? Boo jeans.
