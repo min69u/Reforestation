@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
