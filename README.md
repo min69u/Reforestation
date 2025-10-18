@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## What did the ocean say to the shore? Nothing, it just waved.
