@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
