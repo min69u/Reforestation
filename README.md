@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
