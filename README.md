@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
