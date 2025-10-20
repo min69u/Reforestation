@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## I was thinking about moving to Moscow but there is no point Russian into things.
