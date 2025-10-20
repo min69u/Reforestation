@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I broke my finger at work today, on the other hand I'm completely fine.
