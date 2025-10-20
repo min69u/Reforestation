@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
