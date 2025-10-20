@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
