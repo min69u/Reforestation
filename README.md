@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## I have kleptomania, but when it gets bad, I take something for it.
