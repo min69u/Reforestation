@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Sore throats are a pain in the neck!
