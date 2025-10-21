@@ -1,1 +1,2 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
