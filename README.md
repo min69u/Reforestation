@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
