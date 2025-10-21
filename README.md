@@ -1,1 +1,2 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
