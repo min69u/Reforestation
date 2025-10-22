@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## How come the stadium got hot after the game? Because all of the fans left.
