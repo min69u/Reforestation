@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
