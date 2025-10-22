@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I had a dream that I was a muffler last night. I woke up exhausted!
