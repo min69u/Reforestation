@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Why did the tomato blush? Because it saw the salad dressing.
