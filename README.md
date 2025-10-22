@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why don't eggs tell jokes? They'd crack each other up
