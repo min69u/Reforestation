@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
