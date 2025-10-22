@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
