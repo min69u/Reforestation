@@ -1,1 +1,2 @@
-## Leather is great for sneaking around because it's made of hide.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
