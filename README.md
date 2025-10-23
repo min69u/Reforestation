@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why was the shirt happy to hang around the tank top? Because it was armless
