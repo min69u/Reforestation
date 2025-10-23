@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
