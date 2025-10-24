@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
