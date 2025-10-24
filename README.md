@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
