@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
