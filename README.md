@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
