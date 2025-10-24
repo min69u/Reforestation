@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## “My Dog has no nose.” “How does he smell?” “Awful”
