@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What do you call a bear with no teeth? A gummy bear!
