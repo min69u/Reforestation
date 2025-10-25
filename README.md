@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
