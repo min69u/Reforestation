@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## When does a joke become a dad joke? When it becomes apparent.
