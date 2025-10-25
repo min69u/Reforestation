@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
