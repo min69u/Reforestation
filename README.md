@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What do you call a nervous javelin thrower? Shakespeare.
