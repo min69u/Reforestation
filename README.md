@@ -1,1 +1,2 @@
-## I boiled a funny bone last night and had a laughing stock
+## What is red and smells like blue paint?
+## Red paint!
