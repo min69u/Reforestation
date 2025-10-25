@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
