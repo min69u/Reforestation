@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
