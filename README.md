@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Where did you learn to make ice cream? Sunday school.
