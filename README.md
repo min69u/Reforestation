@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why are fish easy to weigh? Because they have their own scales.
