@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Coffee has a tough time at my house, every morning it gets mugged.
