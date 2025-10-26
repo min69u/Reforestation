@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What’s E.T. short for? He’s only got little legs.
