@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
