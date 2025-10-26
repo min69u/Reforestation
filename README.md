@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Where do young cows eat lunch? In the calf-ateria.
