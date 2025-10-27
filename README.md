@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## New atoms frequently lose electrons when they fail to keep an ion them.
