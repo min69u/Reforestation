@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
