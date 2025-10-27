@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## What do you call a boy who stopped digging holes? Douglas.
