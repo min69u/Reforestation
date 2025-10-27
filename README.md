@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
