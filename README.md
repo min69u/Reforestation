@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
