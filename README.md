@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Why is no one friends with Dracula? Because he's a pain in the neck.
