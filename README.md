@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
