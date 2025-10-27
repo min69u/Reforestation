@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What do you call a duck that gets all A's? A wise quacker.
