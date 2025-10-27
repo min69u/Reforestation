@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
