@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## My first time using an elevator was an uplifting experience. The second time let me down.
