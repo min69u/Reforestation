@@ -1,1 +1,1 @@
-## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
+## What's black and white and read all over? The newspaper.
