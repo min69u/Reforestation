@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
