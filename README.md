@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## I wanted to be a tailor but I didn't suit the job
