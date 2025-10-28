@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
