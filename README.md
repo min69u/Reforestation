@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Bad at golf? Join the club.
