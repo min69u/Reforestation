@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## My boss told me to attach two pieces of wood together... I totally nailed it!
