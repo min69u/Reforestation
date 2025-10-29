@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why didn’t the orange win the race? It ran out of juice.
