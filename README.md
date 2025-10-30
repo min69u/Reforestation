@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
