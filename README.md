@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
