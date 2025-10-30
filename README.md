@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
