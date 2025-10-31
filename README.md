@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What kind of pants do ghosts wear? Boo jeans.
