@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
