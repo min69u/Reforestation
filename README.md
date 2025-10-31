@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## If I could name myself after any Egyptian god, I'd be Set.
