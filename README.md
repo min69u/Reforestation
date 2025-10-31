@@ -1,1 +1,1 @@
-## What is bread's favorite number?  Leaven.
+## There's not really any training for garbagemen. They just pick things up as they go.
