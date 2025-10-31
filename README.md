@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
