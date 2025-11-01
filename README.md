@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
