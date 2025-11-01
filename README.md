@@ -1,1 +1,1 @@
-## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
