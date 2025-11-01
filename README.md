@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
