@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## What's red and bad for your teeth? A Brick.
