@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## I broke my finger at work today, on the other hand I'm completely fine.
