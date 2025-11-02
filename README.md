@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
