@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
