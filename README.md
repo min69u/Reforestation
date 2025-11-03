@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What do you call a fish with no eyes? A fsh.
