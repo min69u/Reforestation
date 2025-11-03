@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Have you heard about corduroy pillows?  They're making headlines!
