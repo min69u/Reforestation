@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
