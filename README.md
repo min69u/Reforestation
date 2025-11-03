@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What do you do when your bunny gets wet? You get your hare dryer.
