@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## How do you make a hankie dance? Put a little boogie in it.
