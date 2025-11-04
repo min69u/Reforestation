@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## How come a man driving a train got struck by lightning? He was a good conductor.
