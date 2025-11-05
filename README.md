@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
