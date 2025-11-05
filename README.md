@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
