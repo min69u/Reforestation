@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
