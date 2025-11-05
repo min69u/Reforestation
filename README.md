@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why was the picture sent to prison? It was framed.
