@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
