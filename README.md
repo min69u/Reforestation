@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
