@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
