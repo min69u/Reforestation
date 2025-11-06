@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## My boss told me to have a good day... so I went home.
