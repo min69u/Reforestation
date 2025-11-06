@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
