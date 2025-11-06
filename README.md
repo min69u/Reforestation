@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## What do you call an elephant that doesn’t matter? An irrelephant.
