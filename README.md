@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
