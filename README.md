@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
