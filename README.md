@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
