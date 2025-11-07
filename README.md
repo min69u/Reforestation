@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## An apple a day keeps the bullies away. If you throw it hard enough.
