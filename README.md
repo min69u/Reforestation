@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
