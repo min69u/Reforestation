@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
