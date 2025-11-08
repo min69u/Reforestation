@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## I’m on a whiskey diet. I’ve lost three days already.
