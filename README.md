@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## I broke my finger at work today, on the other hand I'm completely fine.
