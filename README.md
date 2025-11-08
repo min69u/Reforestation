@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
