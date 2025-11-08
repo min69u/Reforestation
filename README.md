@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
