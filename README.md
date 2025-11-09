@@ -1,1 +1,2 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Why did the cookie cry?
+## Because his mother was a wafer so long
