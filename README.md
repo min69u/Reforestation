@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why don't eggs tell jokes? They'd crack each other up
