@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What did one nut say as he chased another nut?  I'm a cashew!
