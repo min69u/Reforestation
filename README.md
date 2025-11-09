@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
