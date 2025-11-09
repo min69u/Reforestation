@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
