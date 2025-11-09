@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
