@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
