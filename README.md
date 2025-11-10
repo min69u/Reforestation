@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Whiteboards ... are remarkable.
