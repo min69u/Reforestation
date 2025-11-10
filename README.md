@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
