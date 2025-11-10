@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
