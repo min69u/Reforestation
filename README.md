@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
