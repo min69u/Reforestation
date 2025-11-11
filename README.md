@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What’s brown and sounds like a bell? Dung!
