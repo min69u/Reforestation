@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
