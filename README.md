@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## What was a more important invention than the first telephone? The second one.
