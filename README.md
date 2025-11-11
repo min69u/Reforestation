@@ -1,1 +1,3 @@
-## How do the trees get on the internet? They log on.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
