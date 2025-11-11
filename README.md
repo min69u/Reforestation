@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## What do you get hanging from Apple trees? Sore arms.
