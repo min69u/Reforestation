@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
