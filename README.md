@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
