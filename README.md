@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What do you call a duck that gets all A's? A wise quacker.
