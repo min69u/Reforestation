@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
