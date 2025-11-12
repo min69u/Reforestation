@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
