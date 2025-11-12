@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Did you hear about the two thieves who stole a calendar? They each got six months.
