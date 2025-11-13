@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why can't eggs have love? They will break up too soon.
