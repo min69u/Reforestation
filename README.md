@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
