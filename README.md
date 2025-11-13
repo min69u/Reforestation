@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why did the clown have neck pain? - Because he slept funny
