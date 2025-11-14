@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Where did you learn to make ice cream? Sunday school.
