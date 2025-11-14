@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
