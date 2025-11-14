@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
