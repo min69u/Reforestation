@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What does a female snake use for support? A co-Bra!
