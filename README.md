@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
