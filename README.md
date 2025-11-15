@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## “My Dog has no nose.” “How does he smell?” “Awful”
