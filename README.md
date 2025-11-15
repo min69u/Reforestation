@@ -1,1 +1,2 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What is red and smells like blue paint?
+## Red paint!
