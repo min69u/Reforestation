@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Where does Napoleon keep his armies? In his sleevies.
