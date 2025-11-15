@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
