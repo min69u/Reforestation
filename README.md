@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
