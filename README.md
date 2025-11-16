@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
