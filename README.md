@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
