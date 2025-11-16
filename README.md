@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Is the pool safe for diving? It deep ends.
