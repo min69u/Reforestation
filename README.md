@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
