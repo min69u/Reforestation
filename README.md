@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
