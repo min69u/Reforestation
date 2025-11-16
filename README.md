@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
