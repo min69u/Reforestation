@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## What do you call two guys hanging out by your window? Kurt & Rod.
