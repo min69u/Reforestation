@@ -1,1 +1,2 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
