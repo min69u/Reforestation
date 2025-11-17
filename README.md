@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
