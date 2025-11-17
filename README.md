@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
