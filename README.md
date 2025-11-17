@@ -1,1 +1,2 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
