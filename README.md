@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
