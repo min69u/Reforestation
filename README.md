@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why was the strawberry sad? Its parents were in a jam.
