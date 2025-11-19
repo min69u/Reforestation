@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
