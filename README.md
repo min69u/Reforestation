@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
