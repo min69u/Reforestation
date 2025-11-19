@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Sore throats are a pain in the neck!
