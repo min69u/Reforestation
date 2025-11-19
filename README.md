@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
