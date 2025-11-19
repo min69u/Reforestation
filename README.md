@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
