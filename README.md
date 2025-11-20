@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
