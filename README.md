@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## Why are mummys scared of vacation? They're afraid to unwind.
