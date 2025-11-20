@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## What do birds give out on Halloween? Tweets.
