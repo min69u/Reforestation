@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Remember, the best angle to approach a problem from is the "try" angle.
