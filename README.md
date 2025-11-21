@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I was in an 80's band called the prevention. We were better than the cure.
