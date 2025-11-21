@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## Where do rabbits go after they get married? On a bunny-moon.
