@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
