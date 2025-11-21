@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
