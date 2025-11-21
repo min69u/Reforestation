@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
