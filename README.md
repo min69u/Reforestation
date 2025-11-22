@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
