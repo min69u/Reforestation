@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## What do you call a duck that gets all A's? A wise quacker.
