@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
