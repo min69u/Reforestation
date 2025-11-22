@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Want to hear a joke about construction? Nah, I'm still working on it.
