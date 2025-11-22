@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Why didn’t the skeleton cross the road? Because he had no guts.
