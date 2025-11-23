@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why was the shirt happy to hang around the tank top? Because it was armless
