@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
