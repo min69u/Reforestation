@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
