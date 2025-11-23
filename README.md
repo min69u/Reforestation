@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
