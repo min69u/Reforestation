@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What do you do when your bunny gets wet? You get your hare dryer.
