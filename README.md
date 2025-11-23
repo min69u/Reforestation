@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
