@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
