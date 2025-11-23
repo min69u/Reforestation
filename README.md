@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## I just wrote a book on reverse psychology. Do not read it!
