@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
