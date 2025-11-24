@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
