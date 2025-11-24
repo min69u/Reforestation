@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I'm glad I know sign language, it's pretty handy.
