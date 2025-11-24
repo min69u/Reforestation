@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
