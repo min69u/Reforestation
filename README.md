@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
