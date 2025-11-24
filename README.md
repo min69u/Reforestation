@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
