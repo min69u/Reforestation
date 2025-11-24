@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Atheism is a non-prophet organisation.
