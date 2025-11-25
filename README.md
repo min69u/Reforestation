@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What kind of pants do ghosts wear? Boo jeans.
