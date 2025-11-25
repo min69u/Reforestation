@@ -1,1 +1,3 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
