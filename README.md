@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why did the banana go to the doctor? He was not "peeling" well.
