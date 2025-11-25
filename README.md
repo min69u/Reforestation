@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
