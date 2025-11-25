@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## What time did the man go to the dentist? Tooth hurt-y.
