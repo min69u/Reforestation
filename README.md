@@ -1,1 +1,3 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
