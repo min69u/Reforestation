@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
