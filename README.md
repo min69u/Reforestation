@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
