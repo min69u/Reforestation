@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## How come a man driving a train got struck by lightning? He was a good conductor.
