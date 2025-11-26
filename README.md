@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Waking up this morning was an eye-opening experience.
