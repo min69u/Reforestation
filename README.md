@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
