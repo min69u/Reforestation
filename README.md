@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Have you ever seen fruit preserves being made? It's jarring.
