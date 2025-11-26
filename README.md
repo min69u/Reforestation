@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Geology rocks, but Geography is where it's at!
