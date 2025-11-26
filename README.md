@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## When do doctors get angry? When they run out of patients.
