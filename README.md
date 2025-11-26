@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## How come a man driving a train got struck by lightning? He was a good conductor.
