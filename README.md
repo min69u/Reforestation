@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
