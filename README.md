@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
