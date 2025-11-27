@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Don't trust atoms. They make up everything.
