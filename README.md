@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
