@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
