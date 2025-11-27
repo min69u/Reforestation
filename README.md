@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Have you heard about corduroy pillows?  They're making headlines!
