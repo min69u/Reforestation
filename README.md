@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
