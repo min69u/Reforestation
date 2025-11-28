@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
