@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
