@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
