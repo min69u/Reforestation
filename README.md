@@ -1,1 +1,3 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
