@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## I wouldn't buy anything with velcro. It's a total rip-off.
