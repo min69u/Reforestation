@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## What time did the man go to the dentist? Tooth hurt-y.
