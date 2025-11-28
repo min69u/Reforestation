@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
