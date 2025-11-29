@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## Why do ducks make great detectives? They always quack the case.
