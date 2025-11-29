@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
