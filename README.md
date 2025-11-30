@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## I fear for the calendar, its days are numbered.
