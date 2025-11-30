@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
