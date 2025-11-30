@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
