@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
