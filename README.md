@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## I’m on a whiskey diet. I’ve lost three days already.
