@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
