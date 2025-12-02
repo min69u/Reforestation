@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## No matter how kind you are, German children are kinder.
