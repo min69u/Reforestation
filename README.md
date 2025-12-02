@@ -1,1 +1,2 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
