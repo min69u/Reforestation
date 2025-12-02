@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
