@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
