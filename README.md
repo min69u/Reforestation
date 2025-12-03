@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
