@@ -1,1 +1,3 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
