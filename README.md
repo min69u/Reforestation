@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Why do pirates not know the alphabet? They always get stuck at "C".
