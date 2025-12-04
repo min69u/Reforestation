@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## I was in an 80's band called the prevention. We were better than the cure.
