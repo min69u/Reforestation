@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
