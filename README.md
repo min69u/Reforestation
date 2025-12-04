@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
