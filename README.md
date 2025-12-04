@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
