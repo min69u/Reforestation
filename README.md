@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why are mummys scared of vacation? They're afraid to unwind.
