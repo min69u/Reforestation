@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## What do computers and air conditioners have in common? They both become useless when you open windows.
