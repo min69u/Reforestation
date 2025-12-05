@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
