@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
