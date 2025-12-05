@@ -1,1 +1,1 @@
-## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
