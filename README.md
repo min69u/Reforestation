@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
