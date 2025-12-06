@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
