@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## This furniture store keeps emailing me, all I wanted was one night stand!
