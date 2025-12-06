@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
