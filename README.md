@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
