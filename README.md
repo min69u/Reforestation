@@ -1,2 +1,2 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
