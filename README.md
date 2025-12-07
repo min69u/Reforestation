@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Where does astronauts hangout after work? At the spacebar.
