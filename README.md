@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I thought my wife was joking when she said she'd leave me if I didn't stop signing "I'm A Believer"... Then I saw her face.
