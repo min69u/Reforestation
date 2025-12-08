@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why did the man put his money in the freezer? He wanted cold hard cash!
