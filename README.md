@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
