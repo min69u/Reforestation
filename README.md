@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## This morning I was wondering where the sun was, but then it dawned on me.
