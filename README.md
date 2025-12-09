@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
