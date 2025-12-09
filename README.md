@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## What's blue and not very heavy?  Light blue.
