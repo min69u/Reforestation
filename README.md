@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
