@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Thanks for explaining the word "many" to me. It means a lot.
