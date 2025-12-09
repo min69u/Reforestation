@@ -1,1 +1,3 @@
-## My boss told me to have a good day... so I went home.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
