@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why do bees have sticky hair? Because they use honey combs!
