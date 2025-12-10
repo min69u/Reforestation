@@ -1,1 +1,2 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
