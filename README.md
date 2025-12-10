@@ -1,1 +1,3 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
