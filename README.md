@@ -1,1 +1,3 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
