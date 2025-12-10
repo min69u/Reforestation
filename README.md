@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
