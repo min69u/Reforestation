@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Why did the melons plan a big wedding? Because they cantaloupe!
