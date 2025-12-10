@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Where do young cows eat lunch? In the calf-ateria.
