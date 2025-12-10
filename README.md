@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
