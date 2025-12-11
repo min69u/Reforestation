@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## I don't trust stairs. They're always up to something.
