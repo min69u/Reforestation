@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
