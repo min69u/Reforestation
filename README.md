@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
