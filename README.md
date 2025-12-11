@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
