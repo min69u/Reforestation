@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## You can't trust a ladder. It will always let you down
