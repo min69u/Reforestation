@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Where did Captain Hook get his hook? From a second hand store.
