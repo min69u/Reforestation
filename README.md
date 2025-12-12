@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
