@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
