@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## Why was it called the dark ages? Because of all the knights. 
