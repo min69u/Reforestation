@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I've got a joke about vegetables for you... but it's a bit corny.
