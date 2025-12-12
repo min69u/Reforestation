@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## It doesn't matter how much you push the envelope. It will still be stationary.
