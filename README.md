@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
