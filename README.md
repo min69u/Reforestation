@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
