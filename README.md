@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Why do crabs never give to charity? Because they’re shellfish.
