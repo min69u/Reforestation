@@ -1,1 +1,2 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
