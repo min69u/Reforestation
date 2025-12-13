@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## I couldn't get a reservation at the library. They were completely booked.
