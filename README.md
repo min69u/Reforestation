@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What does an angry pepper do? It gets jalapeño face.
