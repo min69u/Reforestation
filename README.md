@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
