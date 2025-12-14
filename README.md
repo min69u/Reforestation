@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
