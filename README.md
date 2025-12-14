@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
