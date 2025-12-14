@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
