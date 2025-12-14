@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
