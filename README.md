@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
