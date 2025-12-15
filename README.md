@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
