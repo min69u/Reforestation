@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
