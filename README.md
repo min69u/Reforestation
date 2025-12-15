@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## What did the sea say to the sand? "We have to stop meeting like this."
