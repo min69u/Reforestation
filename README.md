@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
