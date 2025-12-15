@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
