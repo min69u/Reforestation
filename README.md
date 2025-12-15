@@ -1,1 +1,3 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
