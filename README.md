@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## I’m on a whiskey diet. I’ve lost three days already.
