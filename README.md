@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## How do you teach a kid to climb stairs? There is a step by step guide.
