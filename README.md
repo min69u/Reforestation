@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## A magician was driving down the street and then he turned into a driveway.
