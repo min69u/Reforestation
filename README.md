@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
