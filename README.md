@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## What was a more important invention than the first telephone? The second one.
