@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
