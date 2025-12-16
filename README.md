@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
