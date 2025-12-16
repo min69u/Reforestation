@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
