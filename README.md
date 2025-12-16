@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Where did Captain Hook get his hook? From a second hand store.
