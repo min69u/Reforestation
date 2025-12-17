@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Mountains aren't just funny, they are hill areas
