@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What do you call a cow with two legs? Lean beef.
