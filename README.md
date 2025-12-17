@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What’s E.T. short for? He’s only got little legs.
