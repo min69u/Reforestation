@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## What do you call a dictionary on drugs? High definition.
