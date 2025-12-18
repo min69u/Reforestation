@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
