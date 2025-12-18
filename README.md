@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## The best time on a clock is 6:30--hands down.
