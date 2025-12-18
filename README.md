@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
