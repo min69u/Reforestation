@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## People are shocked to discover I have a police record but I love their greatest hits!
