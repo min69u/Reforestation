@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
