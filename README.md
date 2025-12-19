@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
