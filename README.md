@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## How does a French skeleton say hello? Bone-jour.
