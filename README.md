@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
