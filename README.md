@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
