@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Why do choirs keep buckets handy? So they can carry their tune
