@@ -1,1 +1,1 @@
-## They say Dodger Stadium can hold up to fifty-six thousand people, but that is just a ballpark figure.
+## What kind of pants do ghosts wear? Boo jeans.
