@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## The rotation of earth really makes my day.
