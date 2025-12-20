@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
