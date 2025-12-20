@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Writing with a broken pencil is pointless.
