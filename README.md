@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
