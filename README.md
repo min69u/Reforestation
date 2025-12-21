@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Why are pirates called pirates? Because they arrr!
