@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## I wanted to be a tailor but I didn't suit the job
