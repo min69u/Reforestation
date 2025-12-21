@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## If at first you don't succeed, sky diving is not for you!
