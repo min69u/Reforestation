@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
