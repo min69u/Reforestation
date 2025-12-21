@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
