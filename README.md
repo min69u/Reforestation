@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
