@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
