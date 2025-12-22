@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why do cows wear bells? Because their horns don't work.
