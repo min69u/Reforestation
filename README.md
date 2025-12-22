@@ -1,1 +1,2 @@
-## I made a belt out of watches once... It was a waist of time.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
