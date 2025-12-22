@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## I made a belt out of watches once... It was a waist of time.
