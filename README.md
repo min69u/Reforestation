@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
