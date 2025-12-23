@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Me and my mates are in a band called Duvet. We're a cover band.
