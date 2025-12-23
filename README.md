@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## My first time using an elevator was an uplifting experience. The second time let me down.
