@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## Two silk worms had a race. They ended up in a tie.
