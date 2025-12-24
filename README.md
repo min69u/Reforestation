@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
