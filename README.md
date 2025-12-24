@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Did you know that ghosts call their true love their ghoul-friend?
