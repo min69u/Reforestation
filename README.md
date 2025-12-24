@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
