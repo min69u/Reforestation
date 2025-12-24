@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
