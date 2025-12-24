@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## I thought about going on an all-almond diet. But that's just nuts.
