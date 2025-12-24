@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Why are snake races so exciting? They're always neck and neck.
