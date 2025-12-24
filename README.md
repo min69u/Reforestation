@@ -1,1 +1,2 @@
-## I'll tell you what often gets over looked... garden fences.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
