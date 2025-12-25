@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
