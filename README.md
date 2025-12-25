@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## If I could name myself after any Egyptian god, I'd be Set.
