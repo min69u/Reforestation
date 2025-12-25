@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## What creature is smarter than a talking parrot? A spelling bee.
