@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
