@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
