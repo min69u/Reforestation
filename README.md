@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Leather is great for sneaking around because it's made of hide.
