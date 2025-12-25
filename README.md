@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
