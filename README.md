@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## Ever wondered why bees hum? It's because they don't know the words.
