@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
