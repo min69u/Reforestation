@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## What did the fish say when it swam into a wall? Damn!
