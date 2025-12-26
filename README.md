@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
