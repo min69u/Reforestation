@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
