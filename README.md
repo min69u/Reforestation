@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## What animal is always at a game of cricket? A bat.
