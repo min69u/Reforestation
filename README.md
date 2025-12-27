@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I just broke my guitar. It's okay, I won't fret
