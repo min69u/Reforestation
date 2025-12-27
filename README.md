@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
