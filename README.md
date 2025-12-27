@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
