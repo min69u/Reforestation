@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## Why did the sentence fail the driving test? It never came to a full stop.
