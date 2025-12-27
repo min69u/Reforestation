@@ -1,1 +1,2 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
