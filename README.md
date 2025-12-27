@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
