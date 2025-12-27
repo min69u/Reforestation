@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## What did the digital clock say to the grandfather clock? Look, no hands!
