@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## Where did Captain Hook get his hook? From a second hand store.
