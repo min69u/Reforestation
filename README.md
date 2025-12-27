@@ -1,1 +1,2 @@
-## My boss told me to have a good day. So I went home...
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
