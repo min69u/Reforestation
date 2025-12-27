@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
