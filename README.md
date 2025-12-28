@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## Why are skeletons so calm? Because nothing gets under their skin.
