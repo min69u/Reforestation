@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Why do bears have hairy coats? Fur protection.
