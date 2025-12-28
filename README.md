@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
