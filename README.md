@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## How do robots eat guacamole? With computer chips.
