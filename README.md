@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I tried to write a chemistry joke, but could never get a reaction.
