@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
