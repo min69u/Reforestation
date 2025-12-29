@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
