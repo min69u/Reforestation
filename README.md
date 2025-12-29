@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## Want to hear a joke about construction? Nah, I'm still working on it.
