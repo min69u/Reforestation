@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
