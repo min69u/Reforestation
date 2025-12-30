@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## People are making apocalypse jokes like there’s no tomorrow.
