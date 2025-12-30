@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## What is a witch's favorite subject in school? Spelling!
