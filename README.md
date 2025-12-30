@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
