@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
