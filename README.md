@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
