@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## What time did the man go to the dentist? Tooth hurt-y.
