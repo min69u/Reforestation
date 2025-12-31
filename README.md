@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
