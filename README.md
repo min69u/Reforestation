@@ -1,1 +1,2 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
