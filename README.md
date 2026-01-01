@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
