@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
