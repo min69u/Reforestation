@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
