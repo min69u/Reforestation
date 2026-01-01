@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
