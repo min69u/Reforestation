@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## Where do young cows eat lunch? In the calf-ateria.
