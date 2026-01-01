@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
