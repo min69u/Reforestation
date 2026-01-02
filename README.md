@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## You can't run through a camp site. You can only ran, because it's past tents.
