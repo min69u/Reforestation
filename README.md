@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
