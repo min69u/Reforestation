@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
