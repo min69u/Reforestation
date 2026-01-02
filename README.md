@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## I thought about going on an all-almond diet. But that's just nuts.
