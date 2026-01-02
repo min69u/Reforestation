@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Why did the half blind man fall in the well? Because he couldn't see that well!
