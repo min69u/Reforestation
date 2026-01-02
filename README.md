@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## When does a joke become a dad joke? When it becomes apparent.
