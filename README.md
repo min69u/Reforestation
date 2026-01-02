@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Which side of the chicken has more feathers? The outside.
