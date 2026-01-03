@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Coffee has a tough time at my house, every morning it gets mugged.
