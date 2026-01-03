@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
