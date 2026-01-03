@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
