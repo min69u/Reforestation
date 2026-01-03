@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## The urge to sing the Lion King song is just a whim away.
