@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
