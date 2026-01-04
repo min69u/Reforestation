@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Why are mummys scared of vacation? They're afraid to unwind.
