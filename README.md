@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## What do you get when you cross a chicken with a skunk? A fowl smell!
