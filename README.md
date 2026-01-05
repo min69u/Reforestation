@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## I've just written a song about a tortilla. Well, it is more of a rap really.
