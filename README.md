@@ -1,1 +1,2 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
