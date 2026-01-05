@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why are fish so smart? Because they live in schools!
