@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
