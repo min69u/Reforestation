@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Where do sheep go to get their hair cut? The baa-baa shop.
