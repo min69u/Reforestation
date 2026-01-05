@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Mountains aren't just funny, they are hill areas
