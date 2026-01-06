@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Conjunctivitis.com – now that’s a site for sore eyes.
