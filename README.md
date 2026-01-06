@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
