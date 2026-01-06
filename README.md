@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
