@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
