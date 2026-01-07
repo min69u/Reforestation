@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## What did one snowman say to the other snow man? Do you smell carrot?
