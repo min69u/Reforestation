@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
