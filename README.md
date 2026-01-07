@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
