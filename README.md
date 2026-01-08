@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## What do you call a nervous javelin thrower? Shakespeare.
