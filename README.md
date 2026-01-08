@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
