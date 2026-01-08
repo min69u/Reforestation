@@ -1,1 +1,2 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
