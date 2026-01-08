@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## The rotation of earth really makes my day.
