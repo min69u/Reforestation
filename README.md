@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
