@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## When is a door not a door? When it's ajar.
