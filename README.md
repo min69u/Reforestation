@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
