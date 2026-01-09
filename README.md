@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## Why are ghosts bad liars? Because you can see right through them!
