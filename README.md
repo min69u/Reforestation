@@ -1,1 +1,1 @@
-## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
