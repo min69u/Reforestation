@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
