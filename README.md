@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
