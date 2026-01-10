@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
