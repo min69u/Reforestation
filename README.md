@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
