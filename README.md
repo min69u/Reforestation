@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
