@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## I’m reading a book on the history of glue – can’t put it down.
