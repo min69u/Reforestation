@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## What did the ocean say to the shore? Nothing, it just waved.
