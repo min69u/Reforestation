@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
