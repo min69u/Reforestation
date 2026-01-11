@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
