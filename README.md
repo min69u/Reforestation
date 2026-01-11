@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
