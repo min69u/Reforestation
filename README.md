@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## You can't run through a camp site. You can only ran, because it's past tents.
