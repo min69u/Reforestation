@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## How are false teeth like stars? They come out at night!
