@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
