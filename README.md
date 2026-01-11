@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
