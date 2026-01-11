@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Man, I really love my furniture... me and my recliner go way back.
