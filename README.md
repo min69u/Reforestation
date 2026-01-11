@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
