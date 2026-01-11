@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
