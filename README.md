@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Just read a few facts about frogs. They were ribbiting.
