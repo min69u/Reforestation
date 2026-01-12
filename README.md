@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
