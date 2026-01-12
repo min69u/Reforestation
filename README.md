@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## I’m on a whiskey diet. I’ve lost three days already.
