@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
