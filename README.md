@@ -1,1 +1,2 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
