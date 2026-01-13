@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
