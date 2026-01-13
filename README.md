@@ -1,1 +1,1 @@
-## If I could name myself after any Egyptian god, I'd be Set.
+## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
