@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
