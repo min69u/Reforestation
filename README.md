@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why do cows not have toes? They lactose!
