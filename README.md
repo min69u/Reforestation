@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## What do you call a dictionary on drugs? High definition.
