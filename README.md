@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
