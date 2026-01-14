@@ -1,1 +1,1 @@
-## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
