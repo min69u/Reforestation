@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
