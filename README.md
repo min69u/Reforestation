@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## How do you organize a space party? You planet.
