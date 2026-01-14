@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Why did the chicken get a penalty? For fowl play.
