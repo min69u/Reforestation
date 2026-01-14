@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
