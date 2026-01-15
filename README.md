@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## You can't trust a ladder. It will always let you down
