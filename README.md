@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## I’ll tell you something about German sausages, they’re the wurst
