@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
