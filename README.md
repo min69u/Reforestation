@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## I accidentally took my cats meds last night. Don’t ask meow.
