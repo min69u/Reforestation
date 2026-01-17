@@ -1,1 +1,2 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
