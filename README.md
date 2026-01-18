@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Thanks for explaining the word "many" to me. It means a lot.
