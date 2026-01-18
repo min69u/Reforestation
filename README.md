@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
