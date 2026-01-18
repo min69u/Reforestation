@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
