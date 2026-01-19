@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
