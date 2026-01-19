@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Why was ten scared of seven? Because seven ate nine.
