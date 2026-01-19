@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
