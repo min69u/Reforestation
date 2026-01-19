@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
