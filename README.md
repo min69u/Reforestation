@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## I asked a frenchman if he played video games. He said "Wii"
