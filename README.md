@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I asked a frenchman if he played video games. He said "Wii"
