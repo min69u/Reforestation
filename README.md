@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
