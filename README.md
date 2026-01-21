@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
