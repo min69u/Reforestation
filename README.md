@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
