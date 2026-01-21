@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## What do you do when your bunny gets wet? You get your hare dryer.
