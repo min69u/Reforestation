@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
