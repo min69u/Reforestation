@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## This morning I was wondering where the sun was, but then it dawned on me.
