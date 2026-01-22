@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## I asked a frenchman if he played video games. He said "Wii"
