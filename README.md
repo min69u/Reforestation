@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## It doesn't matter how much you push the envelope. It will still be stationary.
