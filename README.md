@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## What did the grape do when he got stepped on? He let out a little wine.
