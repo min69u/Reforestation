@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## Our wedding was so beautiful, even the cake was in tiers.
