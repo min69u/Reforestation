@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
