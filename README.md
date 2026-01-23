@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
