@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
