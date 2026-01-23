@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Where did you learn to make ice cream? Sunday school.
