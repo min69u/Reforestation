@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## I thought about going on an all-almond diet. But that's just nuts.
