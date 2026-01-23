@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## I was in an 80's band called the prevention. We were better than the cure.
