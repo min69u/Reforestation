@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
