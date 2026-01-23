@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
