@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## The urge to sing the Lion King song is just a whim away.
