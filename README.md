@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
