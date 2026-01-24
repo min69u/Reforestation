@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## A steak pun is a rare medium well done.
