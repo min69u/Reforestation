@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## How does the moon cut his hair? Eclipse it.
