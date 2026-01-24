@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## What do you call two guys hanging out by your window? Kurt & Rod.
