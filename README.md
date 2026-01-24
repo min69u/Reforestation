@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
