@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## Why did the melons plan a big wedding? Because they cantaloupe!
