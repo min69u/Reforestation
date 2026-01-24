@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Where does batman go to the bathroom? The batroom.
