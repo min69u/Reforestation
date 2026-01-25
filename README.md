@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
