@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Why do ducks make great detectives? They always quack the case.
