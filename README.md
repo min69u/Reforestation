@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What time did the man go to the dentist? Tooth hurt-y.
