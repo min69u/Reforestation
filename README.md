@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
