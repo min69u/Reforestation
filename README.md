@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I decided to sell my Hoover… well it was just collecting dust.
