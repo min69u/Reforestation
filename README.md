@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
