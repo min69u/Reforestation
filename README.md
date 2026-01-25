@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## My dentist is the best, he even has a little plaque!
