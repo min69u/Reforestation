@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## I've got a joke about vegetables for you... but it's a bit corny.
