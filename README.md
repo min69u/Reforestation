@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## How come the stadium got hot after the game? Because all of the fans left.
