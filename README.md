@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## What's orange and sounds like a parrot? A Carrot.
