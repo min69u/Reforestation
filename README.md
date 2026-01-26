@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## I considered building the patio by myself. But I didn't have the stones.
