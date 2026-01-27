@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## Why do cows not have toes? They lactose!
