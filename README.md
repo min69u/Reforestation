@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
