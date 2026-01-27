@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## Breaking news! Energizer Bunny arrested – charged with battery.
