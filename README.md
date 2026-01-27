@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
