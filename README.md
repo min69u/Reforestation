@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
