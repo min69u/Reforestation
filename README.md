@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Why did the melons plan a big wedding? Because they cantaloupe!
