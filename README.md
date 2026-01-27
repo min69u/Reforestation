@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
