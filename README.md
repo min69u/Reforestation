@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## I burned 2000 calories today, I left my food in the oven for too long.
