@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I thought about going on an all-almond diet. But that's just nuts.
