@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## I’m on a whiskey diet. I’ve lost three days already.
