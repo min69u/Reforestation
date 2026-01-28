@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## How come the stadium got hot after the game? Because all of the fans left.
