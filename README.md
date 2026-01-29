@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
