@@ -1,1 +1,1 @@
-## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
