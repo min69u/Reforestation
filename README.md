@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## I’ll tell you something about German sausages, they’re the wurst
