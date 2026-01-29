@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
