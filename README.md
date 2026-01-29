@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
