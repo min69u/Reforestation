@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
