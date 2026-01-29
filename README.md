@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Who did the wizard marry? His ghoul-friend
