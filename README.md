@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Why did the coffee file a police report? It got mugged.
