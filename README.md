@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## I thought about going on an all-almond diet. But that's just nuts.
