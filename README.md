@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
