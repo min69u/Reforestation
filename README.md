@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
