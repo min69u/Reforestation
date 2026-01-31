@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
