@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## I was so proud when I finished the puzzle in six months, when on the side it said three to four years.
