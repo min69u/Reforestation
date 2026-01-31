@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
