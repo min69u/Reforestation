@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## What did one snowman say to the other snow man? Do you smell carrot?
