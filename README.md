@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
