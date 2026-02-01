@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
