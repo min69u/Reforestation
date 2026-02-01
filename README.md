@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
