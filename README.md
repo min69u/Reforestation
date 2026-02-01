@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
