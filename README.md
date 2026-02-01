@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What creature is smarter than a talking parrot? A spelling bee.
