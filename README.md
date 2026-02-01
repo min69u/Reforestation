@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
