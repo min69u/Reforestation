@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
