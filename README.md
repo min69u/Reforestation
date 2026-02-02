@@ -1,1 +1,3 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
