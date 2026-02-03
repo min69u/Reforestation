@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
