@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## I thought about going on an all-almond diet. But that's just nuts.
