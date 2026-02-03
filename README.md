@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## I have kleptomania, but when it gets bad, I take something for it.
