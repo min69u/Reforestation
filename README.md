@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
