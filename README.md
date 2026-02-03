@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
