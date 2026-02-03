@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## What do you call a fish with no eyes? A fsh.
