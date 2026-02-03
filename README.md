@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
