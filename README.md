@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What animal is always at a game of cricket? A bat.
