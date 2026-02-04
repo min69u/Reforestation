@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
