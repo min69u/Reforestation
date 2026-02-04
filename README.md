@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
