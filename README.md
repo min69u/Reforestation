@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## I was thinking about moving to Moscow but there is no point Russian into things.
