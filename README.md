@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you call a monkey in a mine field? A babooooom!
