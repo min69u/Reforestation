@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
