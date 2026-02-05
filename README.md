@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## What does a clock do when it's hungry? It goes back four seconds!
