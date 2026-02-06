@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
