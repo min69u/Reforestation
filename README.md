@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
