@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## What did the ocean say to the shore? Nothing, it just waved.
