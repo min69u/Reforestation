@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
