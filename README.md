@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Writing with a broken pencil is pointless.
