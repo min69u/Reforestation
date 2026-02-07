@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Why do bees have sticky hair? Because they use honey combs!
