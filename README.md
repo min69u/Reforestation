@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
