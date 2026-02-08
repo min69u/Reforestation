@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## "I'll call you later." Don't call me later, call me Dad.
