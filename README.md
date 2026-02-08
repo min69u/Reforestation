@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## Two guys walked into a bar, the third one ducked.
