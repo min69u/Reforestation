@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## What has ears but cannot hear? A field of corn.
