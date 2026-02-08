@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## You can't run through a camp site. You can only ran, because it's past tents.
