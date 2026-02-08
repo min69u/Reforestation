@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I boiled a funny bone last night and had a laughing stock
