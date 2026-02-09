@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What do you call two guys hanging out by your window? Kurt & Rod.
