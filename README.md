@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
