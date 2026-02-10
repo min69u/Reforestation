@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
