@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What was a more important invention than the first telephone? The second one.
