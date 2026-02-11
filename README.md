@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
