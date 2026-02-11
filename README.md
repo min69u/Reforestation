@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
