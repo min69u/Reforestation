@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## I used to be addicted to the hokey pokey, but I turned myself around.
