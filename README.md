@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
