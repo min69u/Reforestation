@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What's a ninja's favorite type of shoes? Sneakers!
