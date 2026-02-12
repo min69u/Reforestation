@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
