@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
