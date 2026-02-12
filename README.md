@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
