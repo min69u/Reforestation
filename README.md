@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Why do pirates not know the alphabet? They always get stuck at "C".
