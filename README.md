@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why do choirs keep buckets handy? So they can carry their tune
