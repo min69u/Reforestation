@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Two guys walked into a bar, the third one ducked.
