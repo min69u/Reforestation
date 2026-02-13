@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
