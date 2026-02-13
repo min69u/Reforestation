@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
