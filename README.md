@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## Why did the kid cross the playground? To get to the other slide.
