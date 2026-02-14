@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## What do computers and air conditioners have in common? They both become useless when you open windows.
