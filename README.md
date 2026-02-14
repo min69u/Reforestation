@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
