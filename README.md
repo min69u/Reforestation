@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
