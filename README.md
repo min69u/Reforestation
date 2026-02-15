@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Where did Captain Hook get his hook? From a second hand store.
