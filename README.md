@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Two peanuts were walking down the street. One was a salted.
