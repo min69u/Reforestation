@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
