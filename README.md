@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
