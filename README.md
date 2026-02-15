@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## I burned 2000 calories today, I left my food in the oven for too long.
