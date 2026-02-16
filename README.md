@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
