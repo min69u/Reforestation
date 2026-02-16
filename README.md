@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
