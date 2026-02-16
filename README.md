@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
