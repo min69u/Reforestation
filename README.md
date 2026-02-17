@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
