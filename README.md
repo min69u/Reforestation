@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## It doesn't matter how much you push the envelope. It will still be stationary.
