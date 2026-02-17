@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
