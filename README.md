@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
