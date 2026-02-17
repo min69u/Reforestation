@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## What's the best thing about elevator jokes? They work on so many levels.
