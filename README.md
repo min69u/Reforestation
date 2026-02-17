@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
