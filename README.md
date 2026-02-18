@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Conjunctivitis.com – now that’s a site for sore eyes.
