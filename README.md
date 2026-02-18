@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
