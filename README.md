@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
