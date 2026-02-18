@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## How do you find Will Smith in the snow?  Look for fresh prints.
