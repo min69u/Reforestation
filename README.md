@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
