@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
