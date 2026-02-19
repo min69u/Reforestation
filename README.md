@@ -1,1 +1,2 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
