@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
