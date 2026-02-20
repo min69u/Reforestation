@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
