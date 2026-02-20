@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## I couldn't get a reservation at the library. They were completely booked.
