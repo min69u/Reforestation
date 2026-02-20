@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
