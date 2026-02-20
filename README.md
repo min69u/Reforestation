@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Ever wondered why bees hum? It's because they don't know the words.
