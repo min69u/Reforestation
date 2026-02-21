@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What happens to a frog's car when it breaks down? It gets toad.
