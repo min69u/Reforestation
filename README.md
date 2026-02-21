@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
