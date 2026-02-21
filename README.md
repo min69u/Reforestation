@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
