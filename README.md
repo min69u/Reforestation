@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
