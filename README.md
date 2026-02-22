@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
