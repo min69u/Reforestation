@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
