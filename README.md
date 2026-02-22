@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
