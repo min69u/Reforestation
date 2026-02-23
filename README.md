@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## A Skeleton walked into a bar he said I need a beer and a mop
