@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
