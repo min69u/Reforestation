@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
