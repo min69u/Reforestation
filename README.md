@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Why are pirates called pirates? Because they arrr!
