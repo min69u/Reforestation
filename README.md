@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
