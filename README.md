@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Me and my mates are in a band called Duvet. We're a cover band.
