@@ -1,1 +1,3 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
