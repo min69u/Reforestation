@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
