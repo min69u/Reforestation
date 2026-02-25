@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why did the house go to the doctor? It was having window panes.
