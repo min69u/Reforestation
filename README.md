@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## What is a witch's favorite subject in school? Spelling!
