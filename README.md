@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
