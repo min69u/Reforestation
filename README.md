@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Two silk worms had a race. They ended up in a tie.
