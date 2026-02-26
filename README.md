@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
