@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
