@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
