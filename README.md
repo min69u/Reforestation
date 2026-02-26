@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
