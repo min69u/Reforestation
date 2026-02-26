@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Writing with a broken pencil is pointless.
