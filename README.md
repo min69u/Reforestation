@@ -1,1 +1,2 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
