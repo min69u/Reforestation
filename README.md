@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
