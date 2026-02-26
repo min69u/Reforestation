@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## I decided to sell my Hoover… well it was just collecting dust.
