@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## "I'm sorry." "Hi sorry, I'm dad"
