@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
