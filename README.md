@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
