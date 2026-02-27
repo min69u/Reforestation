@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Archaeology really is a career in ruins.
