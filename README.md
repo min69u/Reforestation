@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## How do you steal a coat? You jacket.
