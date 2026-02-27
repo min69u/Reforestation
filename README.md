@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Where do rabbits go after they get married? On a bunny-moon.
