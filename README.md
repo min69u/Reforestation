@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
