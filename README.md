@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
