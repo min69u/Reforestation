@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## A magician was driving down the street and then he turned into a driveway.
