@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## Without geometry life is pointless.
