@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
