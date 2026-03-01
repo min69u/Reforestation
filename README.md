@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
