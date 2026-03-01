@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
