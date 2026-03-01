@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
