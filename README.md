@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I burned 2000 calories today, I left my food in the oven for too long.
