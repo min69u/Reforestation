@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
