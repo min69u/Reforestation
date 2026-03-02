@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
