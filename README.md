@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Dad, can you put my shoes on? I don't think they'll fit me.
