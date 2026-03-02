@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I got fired from a florist, apparently I took too many leaves.
