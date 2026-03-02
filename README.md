@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## I knew a guy who collected candy canes, they were all in mint condition
