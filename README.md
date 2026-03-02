@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
