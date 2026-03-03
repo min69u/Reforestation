@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Did you hear about the bread factory burning down? They say the business is toast.
