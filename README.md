@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I gave all my dead batteries away today, free of charge.
