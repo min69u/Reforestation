@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I had a dream that I was a muffler last night. I woke up exhausted!
