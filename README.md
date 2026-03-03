@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## I knew a guy who collected candy canes, they were all in mint condition
