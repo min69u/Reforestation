@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## A farmer had 297 cows, when he rounded them up, he found he had 300
