@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What did one nut say as he chased another nut?  I'm a cashew!
