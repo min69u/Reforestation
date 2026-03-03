@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
