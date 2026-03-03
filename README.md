@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
