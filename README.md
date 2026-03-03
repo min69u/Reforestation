@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## I went to the doctor today and he told me I had type A blood but it was a type O.
