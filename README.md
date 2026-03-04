@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
