@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## I asked a frenchman if he played video games. He said "Wii"
