@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What do you call a monkey in a mine field? A babooooom!
