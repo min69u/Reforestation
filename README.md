@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
