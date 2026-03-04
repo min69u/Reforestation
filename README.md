@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## What did the shy pebble wish for? That she was a little boulder.
