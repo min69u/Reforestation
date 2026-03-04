@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
