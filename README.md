@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why are mummys scared of vacation? They're afraid to unwind.
