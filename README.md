@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
