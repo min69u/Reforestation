@@ -1,1 +1,1 @@
-## You will never guess what Elsa did to the balloon. She let it go.
+## What do you call two guys hanging out by your window? Kurt & Rod.
