@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Why do ducks make great detectives? They always quack the case.
