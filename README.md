@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Ever wondered why bees hum? It's because they don't know the words.
