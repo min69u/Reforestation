@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## How many bones are in the human hand? A handful of them.
