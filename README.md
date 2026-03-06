@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## Did you hear about the runner who was criticized? He just took it in stride
