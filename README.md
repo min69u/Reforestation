@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## How does a dyslexic poet write? Inverse.
