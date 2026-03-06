@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
