@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## How does Darth Vader like his toast? On the dark side.
