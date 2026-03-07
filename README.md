@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
