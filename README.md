@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
