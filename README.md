@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## No matter how kind you are, German children are kinder.
