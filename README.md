@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
