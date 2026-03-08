@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## What do you call a monkey in a mine field? A babooooom!
