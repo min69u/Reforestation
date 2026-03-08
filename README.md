@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## I thought about going on an all-almond diet. But that's just nuts.
