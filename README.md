@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why was the strawberry sad? Its parents were in a jam.
