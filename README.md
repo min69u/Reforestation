@@ -1,1 +1,2 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
