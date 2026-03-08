@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## How come a man driving a train got struck by lightning? He was a good conductor.
