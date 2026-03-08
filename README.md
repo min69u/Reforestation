@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
