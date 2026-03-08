@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
