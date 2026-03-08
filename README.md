@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why do bees have sticky hair? Because they use honey combs!
