@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
