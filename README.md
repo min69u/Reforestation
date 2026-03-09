@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
