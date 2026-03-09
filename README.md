@@ -1,1 +1,1 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
