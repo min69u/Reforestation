@@ -1,1 +1,2 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
