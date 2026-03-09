@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Leather is great for sneaking around because it's made of hide.
