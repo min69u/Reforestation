@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why did the tomato blush? Because it saw the salad dressing.
