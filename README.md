@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What do you call two guys hanging out by your window? Kurt & Rod.
