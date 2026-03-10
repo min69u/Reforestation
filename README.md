@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Whoever invented the knock-knock joke should get a no bell prize.
