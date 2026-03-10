@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
