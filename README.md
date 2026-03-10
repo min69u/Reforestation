@@ -1,1 +1,2 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What is red and smells like blue paint?
+## Red paint!
