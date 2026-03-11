@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
