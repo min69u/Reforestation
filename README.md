@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## I have kleptomania, but when it gets bad, I take something for it.
