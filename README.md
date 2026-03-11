@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
