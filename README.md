@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
