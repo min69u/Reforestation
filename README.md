@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
