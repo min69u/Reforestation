@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## I decided to sell my Hoover… well it was just collecting dust.
