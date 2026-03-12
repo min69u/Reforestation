@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
