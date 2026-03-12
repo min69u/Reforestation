@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why do you never see elephants hiding in trees? Because they're so good at it.
