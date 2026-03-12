@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## How do robots eat guacamole? With computer chips.
