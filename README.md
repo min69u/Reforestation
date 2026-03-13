@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## I’ll tell you something about German sausages, they’re the wurst
