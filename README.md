@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## How does the moon cut his hair? Eclipse it.
