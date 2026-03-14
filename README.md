@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## What do you call a troublesome Canadian high schooler? A poutine.
