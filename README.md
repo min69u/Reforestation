@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## It doesn't matter how much you push the envelope. It will still be stationary.
