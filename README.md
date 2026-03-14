@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What do you call an elephant that doesn’t matter? An irrelephant.
