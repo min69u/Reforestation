@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## If at first you don't succeed, sky diving is not for you!
