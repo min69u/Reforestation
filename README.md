@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
