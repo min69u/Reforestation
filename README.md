@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## I’m on a whiskey diet. I’ve lost three days already.
