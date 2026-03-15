@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## I knew a guy who collected candy canes, they were all in mint condition
