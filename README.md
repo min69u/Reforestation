@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
