@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
