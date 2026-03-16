@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
