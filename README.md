@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What's orange and sounds like a parrot? A Carrot.
