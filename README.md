@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## What did one plate say to the other plate? Dinner is on me!
