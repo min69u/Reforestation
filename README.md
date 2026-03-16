@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
