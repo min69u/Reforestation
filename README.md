@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
