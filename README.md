@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why don't sharks eat clowns?  Because they taste funny.
