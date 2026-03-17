@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
