@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
