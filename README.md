@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
