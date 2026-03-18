@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Where do young cows eat lunch? In the calf-ateria.
