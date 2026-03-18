@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Do you know where you can get chicken broth in bulk? The stock market.
