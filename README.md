@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Why do crabs never give to charity? Because they’re shellfish.
