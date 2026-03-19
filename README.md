@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
