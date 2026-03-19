@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What’s brown and sounds like a bell? Dung!
