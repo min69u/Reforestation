@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
