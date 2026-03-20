@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## I'm glad I know sign language, it's pretty handy.
