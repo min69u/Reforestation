@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
