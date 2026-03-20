@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
