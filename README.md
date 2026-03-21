@@ -1,1 +1,1 @@
-## How do you teach a kid to climb stairs? There is a step by step guide.
+## Why did the clown have neck pain? - Because he slept funny
