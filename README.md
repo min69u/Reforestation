@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## What do you call a droid that takes the long way around? R2 detour.
