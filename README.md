@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
