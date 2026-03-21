@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
