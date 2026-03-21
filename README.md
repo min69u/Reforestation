@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
