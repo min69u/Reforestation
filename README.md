@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
