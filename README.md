@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
