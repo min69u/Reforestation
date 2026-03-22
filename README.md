@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
