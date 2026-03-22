@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
