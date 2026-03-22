@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
