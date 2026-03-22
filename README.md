@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Bad at golf? Join the club.
