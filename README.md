@@ -1,1 +1,1 @@
-## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
