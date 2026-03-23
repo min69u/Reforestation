@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## Why are skeletons so calm? Because nothing gets under their skin.
