@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why do birds fly south for the winter? Because it's too far to walk.
