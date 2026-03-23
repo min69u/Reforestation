@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
