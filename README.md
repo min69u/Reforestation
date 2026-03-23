@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
