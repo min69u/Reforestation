@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Want to hear a joke about construction? Nah, I'm still working on it.
