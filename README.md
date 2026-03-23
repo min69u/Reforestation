@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
