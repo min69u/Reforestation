@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## An apple a day keeps the bullies away. If you throw it hard enough.
