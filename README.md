@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## Why was ten scared of seven? Because seven ate nine.
