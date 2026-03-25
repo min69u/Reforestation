@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Why are skeletons so calm? Because nothing gets under their skin.
