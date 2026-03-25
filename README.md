@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
