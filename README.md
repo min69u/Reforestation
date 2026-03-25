@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
