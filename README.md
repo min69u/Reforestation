@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
