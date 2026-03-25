@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
