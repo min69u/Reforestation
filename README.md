@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
