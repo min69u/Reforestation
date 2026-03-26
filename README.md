@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
