@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
