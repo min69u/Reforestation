@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What animal is always at a game of cricket? A bat.
