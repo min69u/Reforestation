@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
