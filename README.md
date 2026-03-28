@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
