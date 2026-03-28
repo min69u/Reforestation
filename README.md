@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## How was the snow globe feeling after the storm? A little shaken.
