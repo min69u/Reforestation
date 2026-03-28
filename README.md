@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Why are ghosts bad liars? Because you can see right through them!
