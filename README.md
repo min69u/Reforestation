@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
