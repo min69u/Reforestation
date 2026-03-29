@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
