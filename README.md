@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Me and my mates are in a band called Duvet. We're a cover band.
