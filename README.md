@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
