@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## Why did the sentence fail the driving test? It never came to a full stop.
