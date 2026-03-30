@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
