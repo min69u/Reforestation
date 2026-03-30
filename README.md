@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
