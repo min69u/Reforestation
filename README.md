@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## What did the digital clock say to the grandfather clock? Look, no hands!
