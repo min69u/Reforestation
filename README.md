@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
