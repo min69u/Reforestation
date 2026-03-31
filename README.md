@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
