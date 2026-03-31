@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
