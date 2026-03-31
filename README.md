@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## When you have a bladder infection, urine trouble.
