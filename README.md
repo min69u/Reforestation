@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
