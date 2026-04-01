@@ -1,1 +1,3 @@
-## What do you call a fat psychic? A four-chin teller.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
