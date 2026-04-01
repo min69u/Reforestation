@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
