@@ -1,1 +1,3 @@
-## What was a more important invention than the first telephone? The second one.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
