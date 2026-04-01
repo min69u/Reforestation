@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
