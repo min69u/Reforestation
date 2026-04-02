@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
