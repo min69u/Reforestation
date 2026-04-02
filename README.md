@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## A termite walks into a bar and asks “Is the bar tender here?”
