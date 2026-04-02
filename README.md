@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
