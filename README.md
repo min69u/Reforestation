@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
