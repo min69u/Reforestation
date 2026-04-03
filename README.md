@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Waking up this morning was an eye-opening experience.
