@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
