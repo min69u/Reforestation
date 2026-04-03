@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
