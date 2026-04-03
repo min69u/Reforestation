@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
