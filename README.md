@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
