@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## A magician was driving down the street and then he turned into a driveway.
