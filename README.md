@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## People are making apocalypse jokes like there’s no tomorrow.
