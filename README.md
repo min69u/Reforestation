@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
