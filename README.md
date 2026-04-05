@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## People are making apocalypse jokes like there’s no tomorrow.
