@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## I’m on a whiskey diet. I’ve lost three days already.
