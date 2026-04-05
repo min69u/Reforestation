@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What kind of magic do cows believe in? MOODOO.
