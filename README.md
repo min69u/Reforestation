@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
