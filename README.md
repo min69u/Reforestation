@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## What did one nut say as he chased another nut?  I'm a cashew!
