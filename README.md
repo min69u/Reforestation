@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
