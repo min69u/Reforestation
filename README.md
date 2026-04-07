@@ -1,1 +1,1 @@
-## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
