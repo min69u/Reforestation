@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
