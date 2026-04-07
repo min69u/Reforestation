@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
