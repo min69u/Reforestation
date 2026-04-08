@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## When does a joke become a dad joke? When it becomes apparent.
