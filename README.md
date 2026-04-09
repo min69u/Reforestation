@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
