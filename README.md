@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## What does a clock do when it's hungry? It goes back four seconds!
