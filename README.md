@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Where do rabbits go after they get married? On a bunny-moon.
