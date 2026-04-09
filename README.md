@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
