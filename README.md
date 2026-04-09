@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
