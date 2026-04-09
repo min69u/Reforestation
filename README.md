@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Geology rocks, but Geography is where it's at!
