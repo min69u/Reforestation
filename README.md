@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## Why don't sharks eat clowns?  Because they taste funny.
