@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Atheism is a non-prophet organisation.
