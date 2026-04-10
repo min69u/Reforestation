@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## How can you tell a vampire has a cold? They start coffin.
