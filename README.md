@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
