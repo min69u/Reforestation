@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Why do bees have sticky hair? Because they use honey combs!
