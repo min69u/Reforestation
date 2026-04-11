@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
