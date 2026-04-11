@@ -1,1 +1,2 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
