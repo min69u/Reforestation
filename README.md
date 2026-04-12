@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
