@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
