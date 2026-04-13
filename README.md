@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
