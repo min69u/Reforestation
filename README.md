@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
