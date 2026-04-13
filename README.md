@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
