@@ -1,1 +1,2 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## What is red and smells like blue paint?
+## Red paint!
