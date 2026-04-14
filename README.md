@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## What did Yoda say when he saw himself in 4K? "HDMI"
