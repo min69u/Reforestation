@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
