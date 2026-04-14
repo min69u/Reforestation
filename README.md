@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What did the fish say when it swam into a wall? Damn!
