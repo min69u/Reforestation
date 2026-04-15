@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
