@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
