@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Where did you learn to make ice cream? Sunday school.
