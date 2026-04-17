@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What did one plate say to the other plate? Dinner is on me!
