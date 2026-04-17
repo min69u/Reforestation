@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
