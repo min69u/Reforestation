@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What is a vampire's favorite fruit? A blood orange.
