@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## Some people eat light bulbs. They say it's a nice light snack.
