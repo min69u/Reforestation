@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## It takes guts to be an organ donor.
