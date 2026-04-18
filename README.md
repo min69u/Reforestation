@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
