@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why are basketball players messy eaters? Because they are always dribbling.
