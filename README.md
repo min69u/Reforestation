@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I used to work for a soft drink can crusher. It was soda pressing.
