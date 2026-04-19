@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Waking up this morning was an eye-opening experience.
