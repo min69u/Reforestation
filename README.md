@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
