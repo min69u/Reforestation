@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## When do doctors get angry? When they run out of patients.
