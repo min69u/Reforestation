@@ -1,1 +1,1 @@
-## I think circles are pointless.
+## Without geometry life is pointless.
