@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## There's not really any training for garbagemen. They just pick things up as they go.
