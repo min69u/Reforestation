@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
