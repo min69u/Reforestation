@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## Why is the ocean always blue? Because the shore never waves back.
