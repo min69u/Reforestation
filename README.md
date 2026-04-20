@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
