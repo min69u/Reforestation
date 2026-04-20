@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What does a clock do when it's hungry? It goes back four seconds!
