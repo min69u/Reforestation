@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
