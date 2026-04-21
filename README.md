@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What do you get when you cross a snowman with a vampire? Frostbite.
