@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## My first time using an elevator was an uplifting experience. The second time let me down.
