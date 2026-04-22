@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## When do doctors get angry? When they run out of patients.
