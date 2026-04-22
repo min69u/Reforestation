@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
