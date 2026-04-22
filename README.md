@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What did the grape do when he got stepped on? He let out a little wine.
