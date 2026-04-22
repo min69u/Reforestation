@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
