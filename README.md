@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
