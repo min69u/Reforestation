@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why do fish live in salt water? Because pepper makes them sneeze!
