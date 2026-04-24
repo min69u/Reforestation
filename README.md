@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
