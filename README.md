@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## Why did the sentence fail the driving test? It never came to a full stop.
