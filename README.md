@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## Why did the chicken get a penalty? For fowl play.
