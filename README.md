@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
