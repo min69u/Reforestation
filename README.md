@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
