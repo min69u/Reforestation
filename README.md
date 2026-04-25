@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why are fish easy to weigh? Because they have their own scales.
