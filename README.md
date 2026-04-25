@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## It doesn't matter how much you push the envelope. It will still be stationary.
