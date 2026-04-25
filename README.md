@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
