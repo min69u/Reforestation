@@ -1,1 +1,3 @@
-## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
