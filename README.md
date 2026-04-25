@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Which side of the chicken has more feathers? The outside.
