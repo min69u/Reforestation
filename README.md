@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What do you do when your bunny gets wet? You get your hare dryer.
