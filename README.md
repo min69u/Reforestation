@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## Why did the half blind man fall in the well? Because he couldn't see that well!
