@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why is the ocean always blue? Because the shore never waves back.
