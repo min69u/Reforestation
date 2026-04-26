@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## What do you call a dad that has fallen through the ice? A Popsicle.
