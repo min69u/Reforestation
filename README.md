@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Me and my mates are in a band called Duvet. We're a cover band.
