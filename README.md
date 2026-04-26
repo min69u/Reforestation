@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
