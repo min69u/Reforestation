@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## How come the stadium got hot after the game? Because all of the fans left.
