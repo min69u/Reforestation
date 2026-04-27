@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
