@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## When do doctors get angry? When they run out of patients.
