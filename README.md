@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Atheism is a non-prophet organisation.
