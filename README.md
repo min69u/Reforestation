@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why did the coffee file a police report? It got mugged.
