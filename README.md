@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
