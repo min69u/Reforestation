@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## Why was the picture sent to prison? It was framed.
