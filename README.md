@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
