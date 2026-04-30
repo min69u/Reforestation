@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
