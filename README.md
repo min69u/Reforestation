@@ -1,1 +1,3 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
