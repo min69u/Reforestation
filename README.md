@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
