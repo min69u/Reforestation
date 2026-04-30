@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Why did the feline fail the lie detector test? Because he be lion.
