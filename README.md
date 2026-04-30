@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
