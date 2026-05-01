@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What creature is smarter than a talking parrot? A spelling bee.
