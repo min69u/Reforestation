@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I ordered a chicken and an egg from Amazon. I'll let you know.
