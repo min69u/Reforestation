@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Ever wondered why bees hum? It's because they don't know the words.
