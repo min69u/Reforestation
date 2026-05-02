@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
