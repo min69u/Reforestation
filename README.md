@@ -1,1 +1,2 @@
-## Dad I’m hungry’ … ‘Hi hungry I’m dad
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
