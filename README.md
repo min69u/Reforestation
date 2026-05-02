@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What did the left eye say to the right eye? Between us, something smells!
