@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## I wouldn't buy anything with velcro. It's a total rip-off.
