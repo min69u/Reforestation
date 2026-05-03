@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
