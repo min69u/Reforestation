@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
