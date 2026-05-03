@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
