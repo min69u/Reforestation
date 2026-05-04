@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
