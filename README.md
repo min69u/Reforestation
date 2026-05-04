@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
