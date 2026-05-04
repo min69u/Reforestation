@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
