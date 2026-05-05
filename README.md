@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
