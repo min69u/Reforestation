@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Is the pool safe for diving? It deep ends.
