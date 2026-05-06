@@ -1,3 +1,2 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
