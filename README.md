@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## How does a French skeleton say hello? Bone-jour.
