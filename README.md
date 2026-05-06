@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
