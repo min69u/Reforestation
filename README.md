@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## How come the stadium got hot after the game? Because all of the fans left.
