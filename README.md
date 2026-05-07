@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
