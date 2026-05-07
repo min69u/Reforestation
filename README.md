@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## The first time I got a universal remote control I thought to myself, "This changes everything"
