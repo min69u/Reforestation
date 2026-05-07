@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I just wrote a book on reverse psychology. Do not read it!
