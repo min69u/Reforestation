@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## What do you call a cow on a trampoline? A milk shake!
