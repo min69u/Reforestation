@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
