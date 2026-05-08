@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
