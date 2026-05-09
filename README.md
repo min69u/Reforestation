@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
