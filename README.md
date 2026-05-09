@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## How many South Americans does it take to change a lightbulb? A Brazilian
