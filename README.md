@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
