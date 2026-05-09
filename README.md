@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What animal is always at a game of cricket? A bat.
