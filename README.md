@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
