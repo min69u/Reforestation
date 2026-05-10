@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
