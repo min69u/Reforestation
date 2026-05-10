@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
