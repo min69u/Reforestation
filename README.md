@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What do you get when you cross a bee and a sheep? A bah-humbug.
