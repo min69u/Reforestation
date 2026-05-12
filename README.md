@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## What do you call corn that joins the army? Kernel.
