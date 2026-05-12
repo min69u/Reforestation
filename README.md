@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## What do you do when your bunny gets wet? You get your hare dryer.
