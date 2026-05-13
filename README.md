@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
