@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Where do rabbits go after they get married? On a bunny-moon.
