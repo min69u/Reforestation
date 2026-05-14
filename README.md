@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
