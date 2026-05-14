@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
