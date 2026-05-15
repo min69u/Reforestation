@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
