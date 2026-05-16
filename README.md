@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
