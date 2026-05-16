@@ -1,1 +1,1 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
