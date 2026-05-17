@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
