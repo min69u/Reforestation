@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What did the pirate say on his 80th birthday? Aye Matey!
