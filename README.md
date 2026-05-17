@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
