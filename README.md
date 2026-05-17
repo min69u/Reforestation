@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
