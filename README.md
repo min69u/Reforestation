@@ -1,1 +1,2 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
