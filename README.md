@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## My cat was just sick on the carpet, I don’t think it’s feline well.
