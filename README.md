@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
