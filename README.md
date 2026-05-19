@@ -1,1 +1,2 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
