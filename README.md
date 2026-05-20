@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
