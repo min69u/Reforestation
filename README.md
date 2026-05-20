@@ -1,1 +1,1 @@
-## What do you call an old snowman? Water.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
