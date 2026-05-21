@@ -1,1 +1,2 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
