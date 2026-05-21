@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Why did the clown have neck pain? - Because he slept funny
