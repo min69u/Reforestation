@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What do you get hanging from Apple trees? Sore arms.
