@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## How can you tell a vampire has a cold? They start coffin.
