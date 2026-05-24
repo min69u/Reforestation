@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What did the grape do when he got stepped on? He let out a little wine.
