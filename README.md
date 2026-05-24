@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Why did the coffee file a police report? It got mugged.
