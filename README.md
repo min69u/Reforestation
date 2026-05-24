@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
