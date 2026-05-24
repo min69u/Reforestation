@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
