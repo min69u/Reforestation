@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
