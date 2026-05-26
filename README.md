@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Shout out to my grandma, that's the only way she can hear.
