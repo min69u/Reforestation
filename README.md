@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
