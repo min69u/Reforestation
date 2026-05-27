@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Why was the broom late for the meeting? He overswept.
