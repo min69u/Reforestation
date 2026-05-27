@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## How come the stadium got hot after the game? Because all of the fans left.
