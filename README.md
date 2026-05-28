@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
