@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## What does a clock do when it's hungry? It goes back four seconds!
