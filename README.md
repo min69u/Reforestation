@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
