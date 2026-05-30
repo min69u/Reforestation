@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
