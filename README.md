@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Why did the man put his money in the freezer? He wanted cold hard cash!
