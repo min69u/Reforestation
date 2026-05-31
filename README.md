@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I asked a frenchman if he played video games. He said "Wii"
