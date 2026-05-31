@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## What do vegetarian zombies eat? Grrrrrainnnnnssss.
