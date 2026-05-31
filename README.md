@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## There's not really any training for garbagemen. They just pick things up as they go.
