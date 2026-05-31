@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## How many South Americans does it take to change a lightbulb? A Brazilian
