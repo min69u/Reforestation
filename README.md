@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Breaking news! Energizer Bunny arrested – charged with battery.
