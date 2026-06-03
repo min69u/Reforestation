@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
