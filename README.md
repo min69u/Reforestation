@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## Want to hear a joke about construction? Nah, I'm still working on it.
