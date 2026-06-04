@@ -1,1 +1,1 @@
-## I wanted to be a tailor but I didn't suit the job
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
