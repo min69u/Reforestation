@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
