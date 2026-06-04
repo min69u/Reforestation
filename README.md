@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## Where do young cows eat lunch? In the calf-ateria.
