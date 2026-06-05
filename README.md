@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
