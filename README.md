@@ -1,1 +1,3 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
