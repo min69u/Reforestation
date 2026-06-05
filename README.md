@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
