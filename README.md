@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Who is the coolest Doctor in the hospital? The hip Doctor!
