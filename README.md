@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## "I'll call you later." Don't call me later, call me Dad.
