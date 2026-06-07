@@ -1,1 +1,1 @@
-## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
