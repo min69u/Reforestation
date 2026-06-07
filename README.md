@@ -1,1 +1,2 @@
-## I hate perforated lines, they're tearable.
+## What is the best way to carve?
+## Whittle by whittle.
