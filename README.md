@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
