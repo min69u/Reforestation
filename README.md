@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Some people eat light bulbs. They say it's a nice light snack.
