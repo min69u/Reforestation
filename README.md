@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
