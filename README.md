@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## what do you call a dog that can do magic tricks? a labracadabrador
