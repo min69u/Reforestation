@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why are fish easy to weigh? Because they have their own scales.
