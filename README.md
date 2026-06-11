@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## When do doctors get angry? When they run out of patients.
