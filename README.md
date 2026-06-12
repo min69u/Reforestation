@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why do choirs keep buckets handy? So they can carry their tune
