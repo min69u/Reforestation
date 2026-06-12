@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Why don't sharks eat clowns?  Because they taste funny.
