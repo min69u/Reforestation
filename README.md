@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
