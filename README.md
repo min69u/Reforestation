@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## What's orange and sounds like a parrot? A Carrot.
