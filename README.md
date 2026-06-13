@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## Whoever invented the knock-knock joke should get a no bell prize.
