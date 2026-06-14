@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## How come a man driving a train got struck by lightning? He was a good conductor.
