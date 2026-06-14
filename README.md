@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Writing with a broken pencil is pointless.
