@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## It doesn't matter how much you push the envelope. It will still be stationary.
