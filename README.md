@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
