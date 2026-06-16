@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## To the guy who invented zero... thanks for nothing.
