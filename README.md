@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
