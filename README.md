@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## What did Yoda say when he saw himself in 4K? "HDMI"
