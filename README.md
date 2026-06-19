@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
