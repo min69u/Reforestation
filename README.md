@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## What do you call corn that joins the army? Kernel.
