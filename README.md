@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
