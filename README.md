@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
