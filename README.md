@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## What do you call a dad that has fallen through the ice? A Popsicle.
