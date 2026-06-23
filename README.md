@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
