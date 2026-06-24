@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Did you hear the joke about the wandering nun? She was a roman catholic.
