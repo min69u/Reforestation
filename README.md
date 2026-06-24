@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
