@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## What has ears but cannot hear? A field of corn.
