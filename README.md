@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
