@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## What's the best thing about elevator jokes? They work on so many levels.
