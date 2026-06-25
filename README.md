@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
