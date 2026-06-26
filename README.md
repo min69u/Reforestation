@@ -1,1 +1,2 @@
-## What do you call a criminal going down the stairs? Condescending
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
