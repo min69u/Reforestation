@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Me and my mates are in a band called Duvet. We're a cover band.
