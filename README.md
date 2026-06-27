@@ -1,1 +1,2 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
