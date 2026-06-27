@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What did Michael Jackson name his denim store?    Billy Jeans!
