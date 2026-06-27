@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
