@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## I'll tell you what often gets over looked... garden fences.
