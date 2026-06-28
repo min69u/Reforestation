@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## I decided to sell my Hoover… well it was just collecting dust.
