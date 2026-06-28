@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## How are false teeth like stars? They come out at night!
