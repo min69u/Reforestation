@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## People who don't eat gluten are really going against the grain.
