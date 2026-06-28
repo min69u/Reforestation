@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## The urge to sing the Lion King song is just a whim away.
