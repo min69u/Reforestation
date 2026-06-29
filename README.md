@@ -1,1 +1,2 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
