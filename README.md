@@ -1,1 +1,2 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
