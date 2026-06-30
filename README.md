@@ -1,1 +1,3 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
