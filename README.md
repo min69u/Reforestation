@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
