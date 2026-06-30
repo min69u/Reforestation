@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
