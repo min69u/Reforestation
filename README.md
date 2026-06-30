@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
