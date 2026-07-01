@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
