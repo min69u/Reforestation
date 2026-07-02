@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## This morning I was wondering where the sun was, but then it dawned on me.
