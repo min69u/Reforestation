@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
