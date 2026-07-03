@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## I knew a guy who collected candy canes, they were all in mint condition
