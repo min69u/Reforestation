@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why do choirs keep buckets handy? So they can carry their tune
