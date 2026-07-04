@@ -1,1 +1,1 @@
-## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
+## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
