@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
