@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
