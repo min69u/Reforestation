@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
