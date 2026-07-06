@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I considered building the patio by myself. But I didn't have the stones.
