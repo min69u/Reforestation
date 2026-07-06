@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
