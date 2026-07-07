@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## You can't trust a ladder. It will always let you down
