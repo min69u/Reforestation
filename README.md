@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why do bees have sticky hair? Because they use honey combs!
