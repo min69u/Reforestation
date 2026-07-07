@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## Don't tell secrets in corn fields. Too many ears around.
