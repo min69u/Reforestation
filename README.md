@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
