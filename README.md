@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
