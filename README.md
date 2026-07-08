@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
