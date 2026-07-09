@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
