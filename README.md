@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## How many South Americans does it take to change a lightbulb? A Brazilian
