@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## What animal is always at a game of cricket? A bat.
