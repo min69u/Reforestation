@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## What did the digital clock say to the grandfather clock? Look, no hands!
