@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## Have you ever seen fruit preserves being made? It's jarring.
