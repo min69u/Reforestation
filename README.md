@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Animal Fact #25: Most bobcats are not named bob.
