@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
