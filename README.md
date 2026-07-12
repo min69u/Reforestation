@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## What did the calculator say to the student? You can count on me.
