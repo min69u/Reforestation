@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
