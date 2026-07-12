@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
