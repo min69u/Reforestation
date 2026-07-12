@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## I’m only familiar with 25 letters in the English language. I don’t know why.
