@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
