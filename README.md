@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Two guys walked into a bar, the third one ducked.
