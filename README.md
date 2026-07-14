@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## What did the sea say to the sand? "We have to stop meeting like this."
