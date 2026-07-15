@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
