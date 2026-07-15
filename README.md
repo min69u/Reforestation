@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
