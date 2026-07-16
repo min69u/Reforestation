@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
