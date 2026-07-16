@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
