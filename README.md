@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Why did the octopus beat the shark in a fight? Because it was well armed.
