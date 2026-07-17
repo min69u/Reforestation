@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
