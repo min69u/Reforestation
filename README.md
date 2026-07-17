@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
