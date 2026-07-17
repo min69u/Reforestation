@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
