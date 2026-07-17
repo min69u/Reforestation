@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
