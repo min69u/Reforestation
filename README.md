@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
