@@ -1,1 +1,1 @@
-## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
+## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
