@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## My wife said I was immature. So I told her to get out of my fort.
