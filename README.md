@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Where did you learn to make ice cream? Sunday school.
