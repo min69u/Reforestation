@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
