@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
