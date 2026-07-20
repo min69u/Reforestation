@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
