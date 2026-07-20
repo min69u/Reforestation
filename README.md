@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why are fish easy to weigh? Because they have their own scales.
