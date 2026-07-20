@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
