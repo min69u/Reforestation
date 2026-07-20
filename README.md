@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## What did the left eye say to the right eye? Between us, something smells!
