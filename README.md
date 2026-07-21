@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
