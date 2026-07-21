@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
