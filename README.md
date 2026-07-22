@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
