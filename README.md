@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
