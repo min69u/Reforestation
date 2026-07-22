@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
