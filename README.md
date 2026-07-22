@@ -1,1 +1,1 @@
-## I am so good at sleeping I can do it with my eyes closed!
+## Geology rocks, but Geography is where it's at!
