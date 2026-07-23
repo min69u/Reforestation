@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
