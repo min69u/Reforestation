@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
