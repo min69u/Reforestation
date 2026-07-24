@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
