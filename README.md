@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Don't trust atoms. They make up everything.
