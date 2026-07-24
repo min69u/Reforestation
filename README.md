@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## What do bees do after they are married? They go on a honeymoon.
