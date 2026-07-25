@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
