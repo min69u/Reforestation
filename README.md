@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
