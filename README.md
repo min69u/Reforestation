@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
