@@ -1,1 +1,1 @@
-## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
+## What do you call a cow with two legs? Lean beef.
