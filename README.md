@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
