@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
