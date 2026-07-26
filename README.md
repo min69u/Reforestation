@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## I thought about going on an all-almond diet. But that's just nuts.
