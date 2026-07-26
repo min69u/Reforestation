@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## A Skeleton walked into a bar he said I need a beer and a mop
