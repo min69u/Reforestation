@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Did you hear about the kidnapping at school? It's ok, he woke up.
