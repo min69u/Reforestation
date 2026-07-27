@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
