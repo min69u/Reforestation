@@ -1,1 +1,2 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
