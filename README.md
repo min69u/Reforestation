@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
