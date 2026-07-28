@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## I thought about going on an all-almond diet. But that's just nuts.
