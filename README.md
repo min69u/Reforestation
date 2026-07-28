@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
