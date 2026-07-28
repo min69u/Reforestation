@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
