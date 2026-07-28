@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why was Pavlov's beard so soft?  Because he conditioned it.
