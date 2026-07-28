@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Leather is great for sneaking around because it's made of hide.
