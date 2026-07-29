@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What do you get when you cross a chicken with a skunk? A fowl smell!
