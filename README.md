@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Geology rocks, but Geography is where it's at!
