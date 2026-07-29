@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Why was it called the dark ages? Because of all the knights. 
