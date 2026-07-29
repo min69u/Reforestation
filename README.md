@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why was the strawberry sad? Its parents were in a jam.
