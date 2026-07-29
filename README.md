@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
