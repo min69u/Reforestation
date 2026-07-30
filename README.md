@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
