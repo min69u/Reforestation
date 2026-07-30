@@ -1,1 +1,3 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
