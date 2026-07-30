@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
