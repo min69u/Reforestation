@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What did the calculator say to the student? You can count on me.
