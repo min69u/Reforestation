@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## My wife said I was immature. So I told her to get out of my fort.
