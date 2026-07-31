@@ -1,1 +1,2 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
