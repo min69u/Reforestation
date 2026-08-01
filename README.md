@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
