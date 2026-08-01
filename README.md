@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Sore throats are a pain in the neck!
