@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
