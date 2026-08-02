@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
