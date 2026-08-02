@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
