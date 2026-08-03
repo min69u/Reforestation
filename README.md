@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
