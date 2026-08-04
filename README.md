@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## How come a man driving a train got struck by lightning? He was a good conductor.
