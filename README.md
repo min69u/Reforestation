@@ -1,1 +1,1 @@
-## Did you hear about the bread factory burning down? They say the business is toast.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
