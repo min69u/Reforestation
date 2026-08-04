@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
