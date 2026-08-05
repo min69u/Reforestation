@@ -1,1 +1,2 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## What's the difference between a seal and a sea lion?
+## An ion! 
