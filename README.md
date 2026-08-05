@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Why do pirates not know the alphabet? They always get stuck at "C".
