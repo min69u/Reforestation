@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
