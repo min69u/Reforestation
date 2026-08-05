@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
