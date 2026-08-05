@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
