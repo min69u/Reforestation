@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Have you heard about corduroy pillows?  They're making headlines!
