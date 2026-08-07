@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
