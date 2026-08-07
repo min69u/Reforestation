@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Shout out to my grandma, that's the only way she can hear.
