@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
