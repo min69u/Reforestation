@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I once lost a banana at court but then I appealed. 
