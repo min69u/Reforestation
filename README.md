@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## What did the big flower say to the littler flower? Hi, bud!
