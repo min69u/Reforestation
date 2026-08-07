@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## People are shocked to discover I have a police record but I love their greatest hits!
