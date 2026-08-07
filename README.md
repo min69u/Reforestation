@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
