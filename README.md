@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why do cows wear bells? Because their horns don't work.
