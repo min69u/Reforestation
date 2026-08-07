@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What time did the man go to the dentist? Tooth hurt-y.
