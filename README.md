@@ -1,1 +1,1 @@
-## The invention of the wheel was what got things rolling
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
