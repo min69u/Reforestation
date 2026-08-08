@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
