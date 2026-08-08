@@ -1,1 +1,2 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
