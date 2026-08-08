@@ -1,1 +1,1 @@
-## At the boxing match, the dad got into the popcorn line and the line for hot dogs, but he wanted to stay out of the punchline.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
