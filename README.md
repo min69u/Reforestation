@@ -1,1 +1,1 @@
-## What do you call a cow on a trampoline? A milk shake!
+## An apple a day keeps the bullies away. If you throw it hard enough.
