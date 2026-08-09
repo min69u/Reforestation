@@ -1,1 +1,1 @@
-## Where do you take someone who’s been injured in a peek-a-boo accident? To the I.C.U.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
