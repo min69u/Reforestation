@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What did the piece of bread say to the knife? Butter me up.
