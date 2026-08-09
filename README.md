@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## A termite walks into a bar and asks “Is the bar tender here?”
