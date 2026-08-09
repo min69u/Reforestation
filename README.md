@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
