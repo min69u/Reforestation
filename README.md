@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## I used to hate facial hair, but then it grew on me.
