@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
