@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
