@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
