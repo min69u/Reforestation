@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
