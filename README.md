@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I won an argument with a weather forecaster once. His logic was cloudy...
