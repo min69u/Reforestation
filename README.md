@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## The urge to sing the Lion King song is just a whim away.
