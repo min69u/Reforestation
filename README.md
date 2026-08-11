@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why did the clown have neck pain? - Because he slept funny
