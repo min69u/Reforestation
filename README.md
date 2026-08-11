@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
