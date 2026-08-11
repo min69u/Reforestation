@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
