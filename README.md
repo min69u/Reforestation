@@ -1,1 +1,1 @@
-## Archaeology really is a career in ruins.
+## Have you heard about corduroy pillows?  They're making headlines!
