@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
