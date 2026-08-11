@@ -1,1 +1,1 @@
-## Who did the wizard marry? His ghoul-friend
+## Archaeology really is a career in ruins.
