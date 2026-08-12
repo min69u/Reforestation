@@ -1,1 +1,2 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
+## I know he means well.
