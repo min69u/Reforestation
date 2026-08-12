@@ -1,2 +1,1 @@
-## My friend keeps telling me "Cheer up. You aren't stuck in a deep hole in the ground, filled with water."
-## I know he means well.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
