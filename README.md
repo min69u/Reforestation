@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
