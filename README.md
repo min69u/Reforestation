@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## I think circles are pointless.
