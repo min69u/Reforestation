@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
