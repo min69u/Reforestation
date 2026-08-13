@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## What do you call a dad that has fallen through the ice? A Popsicle.
