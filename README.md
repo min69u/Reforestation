@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Have you heard of the band 1023MB? They haven't got a gig yet.
