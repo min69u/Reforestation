@@ -1,1 +1,2 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
