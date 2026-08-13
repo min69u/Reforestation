@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What do you call a monkey in a mine field? A babooooom!
