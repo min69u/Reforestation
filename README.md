@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
