@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
