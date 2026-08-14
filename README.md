@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
