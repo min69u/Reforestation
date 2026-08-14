@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
