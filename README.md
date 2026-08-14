@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
