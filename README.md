@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why was Pavlov's beard so soft?  Because he conditioned it.
