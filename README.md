@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## The best time on a clock is 6:30--hands down.
