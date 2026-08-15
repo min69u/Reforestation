@@ -1,1 +1,1 @@
-## What do you call a female snake. misssssssss 
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
