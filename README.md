@@ -1,1 +1,3 @@
-## How do you steal a coat? You jacket.
+## What was the pumpkin’s favorite sport?
+## 
+## Squash.
