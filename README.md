@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
