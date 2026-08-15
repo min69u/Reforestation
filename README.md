@@ -1,1 +1,1 @@
-## Someone broke into my house last night and stole my limbo trophy. How low can you go?
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
