@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## What's orange and sounds like a parrot? A Carrot.
