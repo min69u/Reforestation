@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
