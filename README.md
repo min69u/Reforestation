@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Want to hear a joke about construction? Nah, I'm still working on it.
