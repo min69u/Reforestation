@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## Why did the feline fail the lie detector test? Because he be lion.
