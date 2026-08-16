@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
