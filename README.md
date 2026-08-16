@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
