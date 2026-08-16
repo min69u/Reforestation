@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
