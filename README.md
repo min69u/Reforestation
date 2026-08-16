@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
