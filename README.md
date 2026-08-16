@@ -1,1 +1,1 @@
-## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
+## What does a clock do when it's hungry? It goes back four seconds!
