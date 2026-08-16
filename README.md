@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
