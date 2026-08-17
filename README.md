@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
