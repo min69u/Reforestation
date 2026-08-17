@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
