@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
