@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Why did the knife dress up in a suit? Because it wanted to look sharp
