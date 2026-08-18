@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
