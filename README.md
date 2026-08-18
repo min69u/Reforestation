@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## How do you teach a kid to climb stairs? There is a step by step guide.
