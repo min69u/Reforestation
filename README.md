@@ -1,1 +1,3 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
