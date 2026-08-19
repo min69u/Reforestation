@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## I don't trust sushi, there's something fishy about it.
