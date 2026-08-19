@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I used to work in a shoe recycling shop. It was sole destroying.
