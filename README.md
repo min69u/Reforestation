@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## How does Darth Vader like his toast? On the dark side.
