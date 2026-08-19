@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
