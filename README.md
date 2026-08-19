@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
