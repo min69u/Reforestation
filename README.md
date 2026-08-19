@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What was a more important invention than the first telephone? The second one.
