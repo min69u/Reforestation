@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Sore throats are a pain in the neck!
