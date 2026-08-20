@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
