@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## What was a more important invention than the first telephone? The second one.
