@@ -1,1 +1,1 @@
-## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
