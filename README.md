@@ -1,1 +1,1 @@
-## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
