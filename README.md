@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## My wife said I was immature. So I told her to get out of my fort.
