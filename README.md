@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
