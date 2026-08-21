@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
