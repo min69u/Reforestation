@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
