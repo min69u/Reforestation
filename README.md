@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## Why do bees have sticky hair? Because they use honey combs!
