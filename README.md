@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
