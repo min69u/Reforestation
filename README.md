@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
