@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why didn’t the orange win the race? It ran out of juice.
