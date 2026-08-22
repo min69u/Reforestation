@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## How much does a hipster weigh? An instagram.
