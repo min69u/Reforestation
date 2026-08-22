@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why did the feline fail the lie detector test? Because he be lion.
