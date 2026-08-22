@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
