@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What has ears but cannot hear? A field of corn.
