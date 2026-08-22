@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
