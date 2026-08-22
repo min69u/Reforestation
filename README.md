@@ -1,1 +1,1 @@
-## "Dad, do you think it's going to snow this winter?" "I dont know, its all up in the air"
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
