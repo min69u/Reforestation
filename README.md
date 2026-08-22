@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why did the barber win the race? He took a short cut.
