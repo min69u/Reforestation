@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## I decided to sell my Hoover… well it was just collecting dust.
