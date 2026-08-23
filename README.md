@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## New atoms frequently lose electrons when they fail to keep an ion them.
