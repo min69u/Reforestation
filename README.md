@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
