@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Whoever invented the knock-knock joke should get a no bell prize.
