@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why did the tomato blush? Because it saw the salad dressing.
