@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Why did the tree go to the dentist? It needed a root canal.
