@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
