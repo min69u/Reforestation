@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
