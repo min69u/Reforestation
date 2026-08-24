@@ -1,1 +1,1 @@
-## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
+## what do you call a dog that can do magic tricks? a labracadabrador
