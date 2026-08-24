@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why did the knife dress up in a suit? Because it wanted to look sharp
