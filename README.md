@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
