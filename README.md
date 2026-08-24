@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Why was the robot angry? Because someone kept pressing his buttons!
