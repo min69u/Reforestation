@@ -1,1 +1,3 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
