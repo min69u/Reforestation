@@ -1,1 +1,3 @@
-## When do doctors get angry? When they run out of patients.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
