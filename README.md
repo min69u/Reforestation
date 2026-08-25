@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I considered building the patio by myself. But I didn't have the stones.
