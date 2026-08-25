@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
