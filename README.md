@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
