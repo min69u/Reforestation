@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the grape do when he got stepped on? He let out a little wine.
