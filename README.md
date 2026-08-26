@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
