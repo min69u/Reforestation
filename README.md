@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## New atoms frequently lose electrons when they fail to keep an ion them.
