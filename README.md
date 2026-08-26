@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## "What time is it?" I don't know... it keeps changing.
