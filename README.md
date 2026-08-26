@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
