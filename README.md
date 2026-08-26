@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why do birds fly south for the winter? Because it's too far to walk.
