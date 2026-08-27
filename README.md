@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Did you know that ghosts call their true love their ghoul-friend?
