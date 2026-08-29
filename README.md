@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
