@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
