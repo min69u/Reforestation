@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
