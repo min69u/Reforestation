@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## What do you call a cow with two legs? Lean beef.
