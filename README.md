@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What do you call your friend who stands in a hole? Phil.
