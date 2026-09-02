@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do pirates not know the alphabet? They always get stuck at "C".
