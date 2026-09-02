@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## “My Dog has no nose.” “How does he smell?” “Awful”
