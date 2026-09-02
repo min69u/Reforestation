@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
