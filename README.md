@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## Why do cows not have toes? They lactose!
