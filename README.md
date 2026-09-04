@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
