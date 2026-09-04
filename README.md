@@ -1,1 +1,2 @@
-## I always wanted to look into why I procrastinate, but I keep putting it off. 
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
