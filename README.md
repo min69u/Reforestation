@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
