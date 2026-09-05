@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## It doesn't matter how much you push the envelope. It will still be stationary.
