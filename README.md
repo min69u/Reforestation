@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Our wedding was so beautiful, even the cake was in tiers.
