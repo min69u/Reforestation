@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## What did one plate say to the other plate? Dinner is on me!
