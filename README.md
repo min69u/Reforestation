@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
