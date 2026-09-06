@@ -1,1 +1,3 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
