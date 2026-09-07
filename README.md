@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
