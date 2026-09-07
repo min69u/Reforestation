@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
