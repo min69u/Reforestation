@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## Why did the clown have neck pain? - Because he slept funny
