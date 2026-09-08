@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## Why was the robot angry? Because someone kept pressing his buttons!
