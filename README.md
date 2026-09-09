@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Me and my mates are in a band called Duvet. We're a cover band.
