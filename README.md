@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Why is the ocean always blue? Because the shore never waves back.
