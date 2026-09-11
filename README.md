@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
