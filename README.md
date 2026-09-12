@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## what do you call a dog that can do magic tricks? a labracadabrador
