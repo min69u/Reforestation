@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why was the robot angry? Because someone kept pressing his buttons!
