@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## Why do crabs never give to charity? Because they’re shellfish.
