@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## There’s a new type of broom out, it’s sweeping the nation.
