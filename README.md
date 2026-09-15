@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
