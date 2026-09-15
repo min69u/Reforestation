@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Waking up this morning was an eye-opening experience.
