@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
