@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
