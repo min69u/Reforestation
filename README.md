@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
