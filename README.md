@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
