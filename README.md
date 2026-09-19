@@ -1,3 +1,2 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
