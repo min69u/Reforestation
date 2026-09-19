@@ -1,1 +1,3 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
