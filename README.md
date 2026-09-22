@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I’m reading a book on the history of glue – can’t put it down.
