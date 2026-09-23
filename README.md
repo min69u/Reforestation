@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
