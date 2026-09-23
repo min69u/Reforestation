@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
