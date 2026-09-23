@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
