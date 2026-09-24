@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
