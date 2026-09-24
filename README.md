@@ -1,1 +1,2 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
