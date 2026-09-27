@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
