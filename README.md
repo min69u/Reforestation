@@ -1,1 +1,2 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
