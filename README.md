@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
