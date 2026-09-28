@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
