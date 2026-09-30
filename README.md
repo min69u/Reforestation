@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
