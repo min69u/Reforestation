@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
