@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## What kind of music do planets listen to? Nep-tunes.
