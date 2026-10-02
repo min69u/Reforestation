@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why did the banana go to the doctor? He was not "peeling" well.
