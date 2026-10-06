@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
