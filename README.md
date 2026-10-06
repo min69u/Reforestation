@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
