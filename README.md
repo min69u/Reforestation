@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Where do bees go to the bathroom?  The BP station.
