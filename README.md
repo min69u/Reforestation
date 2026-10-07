@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## What do computers and air conditioners have in common? They both become useless when you open windows.
