@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
