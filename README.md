@@ -1,1 +1,1 @@
-## You will never guess what Elsa did to the balloon. She let it go.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
