@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## What do you call a bear with no teeth? A gummy bear!
