@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
