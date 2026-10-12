@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## How do you find Will Smith in the snow?  Look for fresh prints.
