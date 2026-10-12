@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
