@@ -1,1 +1,2 @@
-## What kind of award did the dentist receive? A little plaque.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
