@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## What did the left eye say to the right eye? Between us, something smells!
