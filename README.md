@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I tried to write a chemistry joke, but could never get a reaction.
