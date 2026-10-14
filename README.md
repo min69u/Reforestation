@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## What creature is smarter than a talking parrot? A spelling bee.
