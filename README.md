@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What is a vampire's favorite fruit? A blood orange.
