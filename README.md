@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
