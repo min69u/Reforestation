@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## How many bones are in the human hand? A handful of them.
