@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## What does an angry pepper do? It gets jalapeño face.
