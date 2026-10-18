@@ -1,1 +1,3 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
