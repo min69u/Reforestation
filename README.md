@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
