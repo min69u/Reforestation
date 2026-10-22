@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
