@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
