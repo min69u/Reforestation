@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
