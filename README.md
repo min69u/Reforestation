@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
