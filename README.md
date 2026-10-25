@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
