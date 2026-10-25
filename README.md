@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## Why don't sharks eat clowns?  Because they taste funny.
