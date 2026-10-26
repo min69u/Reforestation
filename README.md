@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
