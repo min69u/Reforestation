@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## Why did the feline fail the lie detector test? Because he be lion.
