@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
