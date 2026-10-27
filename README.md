@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I’m on a whiskey diet. I’ve lost three days already.
