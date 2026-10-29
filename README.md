@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
