@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
