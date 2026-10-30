@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
