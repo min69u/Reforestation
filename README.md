@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
