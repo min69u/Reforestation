@@ -1,1 +1,1 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
