@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
