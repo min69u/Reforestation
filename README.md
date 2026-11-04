@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Leather is great for sneaking around because it's made of hide.
