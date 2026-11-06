@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## The urge to sing the Lion King song is just a whim away.
