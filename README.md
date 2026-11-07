@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Where do rabbits go after they get married? On a bunny-moon.
