@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
