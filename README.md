@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I got an A on my origami assignment when I turned my paper into my teacher
