@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
