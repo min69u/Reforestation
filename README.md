@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Waking up this morning was an eye-opening experience.
