@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
