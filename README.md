@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
