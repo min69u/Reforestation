@@ -1,1 +1,2 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
