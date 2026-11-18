@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## What do you call a cow with two legs? Lean beef.
