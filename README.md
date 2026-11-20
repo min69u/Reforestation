@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What was a more important invention than the first telephone? The second one.
