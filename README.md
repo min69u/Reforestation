@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
