@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
