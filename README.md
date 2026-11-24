@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
