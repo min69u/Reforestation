@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## I tried to milk a cow today, but was unsuccessful. Udder failure.
