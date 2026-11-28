@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
